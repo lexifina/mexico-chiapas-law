@@ -1,0 +1,3 @@
+P.O. 28 DE JULIO DE 1999.
+ARTICULO PRIMERO.- El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+ARTICULO SEGUNDO.- El Congreso del Estado procederá a la designación de Concejos Municipales que realizarán las funciones de cuerpo edilicio en los nuevos municipios hasta la conclusión del período municipal que inició el primero de enero de 1999. Los primeros ayuntamientos de los nuevos municipios, cuyo ejercicio iniciará el primero de enero del 2002, serán electos a través de los comicios ordinarios que para ese período se celebren conforme a lo dispuesto en la Constitución Política Federal, la particular del Estado y el Código Electoral del Estado.
