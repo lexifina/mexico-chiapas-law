@@ -1,0 +1,1 @@
+Artículo Segundo.- Se abroga la Ley de Planeación del Estado de Chiapas, publicada en el Periódico Oficial del Estado número treinta y nueve, del treinta de septiembre de mil novecientos ochenta y siete y sus reformas y adiciones; así como las demás disposiciones legales que se opongan a la presente ley que se expide.

@@ -1,0 +1,1 @@
+Artículo Tercero.- Las dependencias de la administración pública estatal, por única ocasión deberán presentar el correspondiente Programa Sectorial, conforme al Acuerdo de Sectorización, a más tardar el 31 de marzo del año 2005.

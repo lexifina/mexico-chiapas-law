@@ -1,0 +1,1 @@
+Artículo Cuarto.- Las dependencias y entidades de la administración pública estatal, por única ocasión deberán presentar sus Programas Institucionales correspondiente al periodo 2005-2006, a más tardar el 31 de marzo del año 2005.
