@@ -1,7 +1,7 @@
 P.O. 16 DE SEPTIEMBRE DE 1981.
 ARTICULO PRIMERO.- Esta Constitución se publicará en el Periódico Oficial, y con la mayor solemnidad se protestará guardarla y hacerla guardar en todo el Estado; y comenzará a regir desde el 1° de enero de 1982.
 ARTICULO SEGUNDO.- (DEROGADO, P.O. 9 DE OCTUBRE DE 1990) (REPUBLICADO, P.O. 7 DE ENERO DE 1994)
-ARTICULO TERCERO.- (DEROGADO, P.O. 7 DE ENERO DE 1994)
+ARTICULO TERCERO.- Para los efectos del Artículo 36 reformado, la Legislatura del Estado, designará a la persona que ocupará el cargo de Gobernador con el carácter de interino del día primero al día ocho de diciembre de 1982, fecha esta ultima en que deberá tomar posesión el Gobernador Constitucional Electo.
 ARTICULO CUARTO.- Quedan derogadas todas las leyes, decretos, circulares, reglamentos o cualesquiera otras disposiciones que contravengan a la presente Constitución.
 ARTICULO QUINTO.- El Ejecutivo dispondrá se promulgue, circule y publique por Bando Solemne, para su debido cumplimiento.
 (REFORMADO PRIMER PARRAFO, P.O. 9 DE OCTUBRE DE 1990)
