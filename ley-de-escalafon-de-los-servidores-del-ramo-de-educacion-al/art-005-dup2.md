@@ -1,0 +1,1 @@
+Art. 5o.- Los Maestros colocados en alguna de las categorías especiales o provisionales, no podrán ascender u ocupar plazas con retribución superior a la que tenga al promulgarse la presente Ley, sin antes obtener el título correspondiente.

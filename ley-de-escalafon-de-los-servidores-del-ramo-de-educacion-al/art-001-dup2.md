@@ -1,0 +1,1 @@
+Art. 1o.- Los Maestros conservarán las clases que hayan alcanzado antes de entrar en vigor esta Ley. Al hacerse las nuevas clasificaciones de los Maestros, los puntos y categorías obtenidos por ellos antes de la vigencia de la presente Ley, se tomarán en cuenta en la forma y proporción que establezca el Reglamento respectivo.

@@ -1,0 +1,2 @@
+Art. 4o.- Disueltas las categorías provisionales por el transcurso del plazo señalado en el artículo anterior, las personas comprendidas en ellas, que no hayan regularizado su ingreso al Escalafón, obteniendo el título necesario, podrán ser descendidas de acuerdo con las estipulaciones que sobre el particular establezca el Reglamento de la presente Ley.
+Las vacantes que queden con este motivo, serán cubiertas con Maestros titulados.

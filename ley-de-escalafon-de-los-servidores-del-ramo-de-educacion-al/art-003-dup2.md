@@ -1,0 +1,1 @@
+Art. 3o.- Las Categorías provisionales durarán 7 años desde que entre en vigor esta Ley. Durante el tiempo señalado, los Maestros comprendidos en ella, deberán obtener el título profesional correspondiente.
