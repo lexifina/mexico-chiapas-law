@@ -1,0 +1,6 @@
+P.O. 16 DE SEPTIEMBRE DE 1981.
+ARTICULO PRIMERO.- Esta Constitución se publicará en el Periódico Oficial, y con la mayor solemnidad se protestará guardarla y hacerla guardar en todo el Estado; y comenzará a regir desde el 1° de enero de 1982.
+ARTICULO SEGUNDO.- El Tribunal Superior de Justicia quedará integrado conforme a las disposiciones aquí establecidas y el plazo a que se refiere el Artículo 53 Párrafo Cuarto de esta Constitución empieza a contarse a partir de esta fecha y para los efectos de ratificación será a propuesta del Gobernador ante el Congreso del Estado, el día 1º de enero de 1987.
+ARTICULO TERCERO.- Para los efectos del Artículo 36 reformado, la Legislatura del Estado, designará a la persona que ocupará el cargo de Gobernador con el carácter de interino del día primero al día ocho de diciembre de 1982, fecha esta ultima en que deberá tomar posesión el Gobernador Constitucional Electo.
+ARTICULO CUARTO.- Quedan derogadas todas las leyes, decretos, circulares, reglamentos o cualesquiera otras disposiciones que contravengan a la presente Constitución.
+ARTICULO QUINTO.- El Ejecutivo dispondrá se promulgue, circule y publique por Bando Solemne, para su debido cumplimiento.
