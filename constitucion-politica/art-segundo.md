@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO. - Se abroga el Estatuto Interno del Instituto de Ciencia y Tecnología del Estado de Aguascalientes, publicado el día 6 de marzo del 2023 en el Periódico Oficial del Estado de Aguascalientes.
