@@ -9,3 +9,5 @@ ARTICULO SEXTO. Para la renovación del H. Congreso del Estado que entró en fun
 (ADICIONADO, P.O. 8 DE DICIEMBRE DE 1988)
 Los Diputados que resulten electos durarán en sus funciones del primero de noviembre de 1991 al quince de noviembre de 1995 y los Ayuntamientos que designen los comicios referidos ejercerán su encargo del primero de enero de 1992 al treinta y uno de diciembre de 1995.
 ARTICULO SEPTIMO.- (DEROGADO, P.O. 7 DE ENERO DE 1994)
+(ADICIONADO, P.O. 4 DE OCTUBRE DE 1997)
+ARTICULO OCTAVO.- Para los efectos de elegir a la LX Legislatura Constitucional del Estado y de renovar los Ayuntamientos que iniciaron su ejercicio el primero de enero de 1996, el proceso electoral deberá iniciarse dentro de los primeros quince días del mes de enero de 1998, debiendo operar el Congreso del Estado las modificaciones necesarias en el Código Electoral del Estado.
