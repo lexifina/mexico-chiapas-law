@@ -1,1 +1,0 @@
-ARTÍCULO CUARTO.- Se ordena inscribir las presentes reformas y adiciones al Estatuto Orgánico del Instituto para la Educación de las Personas Jóvenes y Adultas de Aguascalientes en el Registro Público de la Propiedad y del Comercio del Estado en el libro correspondiente a las Entidades Paraestatales.

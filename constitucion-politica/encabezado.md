@@ -1,9 +1,8 @@
-ESTATUTO ORGÁNICO DEL INSTITUTO PARA LA EDUCACIÓN DE LAS PERSONAS JÓVENES Y ADULTAS DE AGUASCALIENTES
-Estatuto publicado en la Quinta Sección del Periódico Oficial del Estado de Aguascalientes, el lunes 11 de junio de 2018.
-INSTITUTO PARA LA EDUCACIÓN DE LAS PERSONAS JÓVENES Y ADULTAS DE AGUASCALIENTES
-Los integrantes de la JUNTA DE GOBIERNO DEL INSTITUTO PARA LA EDUCACIÓN DE LAS PERSONAS JÓVENES Y ADULTAS DE AGUASCALIENTES, en ejercicio de la facultad que nos confieren los Artículos 3°, 5°, 15, 16 y 17 de la Ley Orgánica de la Administración Pública del Estado de Aguascalientes; Artículo Sexto Transitorio de la Ley de Responsabilidades Administrativas del Estado de Aguascalientes; 5° de la Ley del Procedimiento Administrativo del Estado de Aguascalientes; 2°, 5°, 10, 15 fracción I, 30, 31, 41 fracción VIII, 42 fracciones I y XII, 43, 44 y 41 fracción VIII de la Ley para el Control de las Entidades Paraestatales del Estado de Aguascalientes; 11 fracción V, de la Ley que Crea el Instituto para la Educación de las Personas Jóvenes y Adultas de Aguascalientes; y, 5° del Estatuto Orgánico del Instituto para la Educación de las Personas Jóvenes y Adultas de Aguascalientes, expedimos el "ESTATUTO ORGÁNICO DEL INSTITUTO PARA LA EDUCACIÓN DE LAS PERSONAS JÓVENES Y ADULTAS DE AGUASCALIENTES", al tenor de la siguiente:
-EXPOSICIÓN DE MOTIVOS
-[…]
-ESTATUTO ORGÁNICO DEL INSTITUTO PARA LA EDUCACIÓN DE LAS PERSONAS JÓVENES Y ADULTAS DE AGUASCALIENTES
-CAPÍTULO I
-Disposiciones Generales
+CONSTITUCION POLITICA DEL ESTADO DE CHIAPAS
+Constitución publicada en Alcance No.5 al Periódico Oficial del Estado de Chiapas, el 3 de febrero de 1921.
+TIBURCIO FERNANDEZ RUIZ, General de División del Ejército Nacional y Gobernador Constitucional del Estado Libre y Soberano de Chiapas, a sus habitantes hago saber:
+Que la H. XXVIII Legislatura del mismo, ha tenido a bien decretar:
+La XXVIII Legislatura Constitucional del Estado Libre y Soberano de Chiapas, con su carácter de Asamblea Constituyente, en nombre del Pueblo decreta la siguiente:
+CONSTITUCION POLITICA DEL ESTADO DE CHIAPAS
+TITULO PRIMERO
+Del Estado y su Territorio
