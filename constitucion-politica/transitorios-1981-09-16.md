@@ -11,3 +11,5 @@ Los Diputados que resulten electos durarán en sus funciones del primero de novi
 ARTICULO SEPTIMO.- (DEROGADO, P.O. 7 DE ENERO DE 1994)
 (ADICIONADO, P.O. 4 DE OCTUBRE DE 1997)
 ARTICULO OCTAVO.- Para los efectos de elegir a la LX Legislatura Constitucional del Estado y de renovar los Ayuntamientos que iniciaron su ejercicio el primero de enero de 1996, el proceso electoral deberá iniciarse dentro de los primeros quince días del mes de enero de 1998, debiendo operar el Congreso del Estado las modificaciones necesarias en el Código Electoral del Estado.
+(ADICIONADO P.O. DE 28 DE SEPTIEMBRE DE 2000)
+ARTICULO TRANSITORIO.- Para los efectos de elegir a la LXI Legislatura Constitucional del Estado Libre y Soberano de Chiapas y de designar los ayuntamientos, cuyo ejercicio municipal constitucional durará del 1° de enero del año 2002 al 31 de diciembre del año 2004, el proceso electoral deberá iniciar durante la primera quincena del mes de febrero del año 2001, debiendo operar el Congreso del Estado las modificaciones necesarias en el Código Electoral del Estado.
