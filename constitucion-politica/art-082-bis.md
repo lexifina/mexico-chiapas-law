@@ -1,3 +1,3 @@
-(ADICIONADO, P.O. 28 DE ENERO DE 1999)
-ARTICULO 82 BIS.- La protección ciudadana es una función a cargo del Estado y sus Municipios, en las respectivas competencias que esta Constitución señala; garantizando entre otras la prevención, persecución y sanción de las infracciones y delitos, la reinserción social del delincuente y del menor infractor, así como la Protección Civil del Estado.
+(ADICIONADO [N. DE E. REFORMADO], P.O. 3 DE MARZO DE 1999)
+ARTICULO 82 BIS.- La protección ciudadana es una función a cargo del Estado y sus Municipios, en las respectivas competencias que esta Constitución señala; garantizando entre otras la prevención, persecución y sanción de las infracciones y delitos, la reinserción social del delincuente y del menor infractor, así como la protección civil del Estado.
 El Estado y los Municipios se coordinarán en los términos que la ley señale para establecer un sistema estatal de seguridad pública que garantice el ejercicio irrestricto de las libertades ciudadanas, la paz y orden públicos.
