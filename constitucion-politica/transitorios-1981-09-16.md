@@ -1,0 +1,13 @@
+P.O. 16 DE SEPTIEMBRE DE 1981.
+ARTICULO PRIMERO.- Esta Constitución se publicará en el Periódico Oficial, y con la mayor solemnidad se protestará guardarla y hacerla guardar en todo el Estado; y comenzará a regir desde el 1° de enero de 1982.
+ARTICULO SEGUNDO.- (DEROGADO, P.O. 9 DE OCTUBRE DE 1990)
+(REFORMADO, P.O. 8 DE DICIEMBRE DE 1988)
+ARTICULO TERCERO.- Para los efectos del artículo 36, el Congreso del Estado designará la persona que ocupará el cargo de Gobernador, con el carácter de interino, quien durará en sus funciones del día ocho de diciembre de 1994 al día quince de diciembre de 1995.
+ARTICULO CUARTO.- Quedan derogadas todas las leyes, decretos, circulares, reglamentos o cualesquiera otras disposiciones que contravengan a la presente Constitución.
+ARTICULO QUINTO.- El Ejecutivo dispondrá se promulgue, circule y publique por Bando Solemne, para su debido cumplimiento.
+(REFORMADO PRIMER PARRAFO, P.O. 9 DE OCTUBRE DE 1990)
+ARTICULO SEXTO. Para la renovación del H. Congreso del Estado que entró en funciones el 1o. de noviembre de 1988 y de los Ayuntamientos que iniciaron su ejercicio el primero de enero de 1989, las elecciones Constitucionales se celebrarán el tercer domingo de agosto de 1991.
+(ADICIONADO, P.O. 8 DE DICIEMBRE DE 1988)
+Los Diputados que resulten electos durarán en sus funciones del primero de noviembre de 1991 al quince de noviembre de 1995 y los Ayuntamientos que designen los comicios referidos ejercerán su encargo del primero de enero de 1992 al treinta y uno de diciembre de 1995.
+(ADICIONADO, P.O. 8 DE DICIEMBRE DE 1988)
+ARTICULO SEPTIMO.- A partir de 1995, las elecciones constitucionales para elegir Gobernador del Estado, y los Diputados al H. Congreso del Estado y de Ayuntamientos, se celebrarán el segundo domingo de octubre del año que corresponda, el Gobernador del Estado durará en su encargo del dieciséis de diciembre del año de los comicios al quince de diciembre del sexto año posterior a su elección. Los Diputados ejercerán su mandato del dieciséis de noviembre del año de los comicios al quince de noviembre del tercer año posterior al de su elección, los Ayuntamientos durarán en sus funciones durante tres años, con todos (sic) a partir del primero de enero posterior al día de los comicios.
