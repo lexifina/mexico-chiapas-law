@@ -1,0 +1,30 @@
+ARTÍCULO QUINTO.- Una vez que sean emitidos los Lineamientos por parte de la Contraloría del Estado en materia de la regulación de los Órganos Internos de Control, la Junta de Gobierno deberá emitir sus Lineamientos con apego a los expedidos por la Contraloría del Estado, en un término no mayor a 90 días contados a partir de la fecha de su publicación.
+Dado en las instalaciones del INSTITUTO PARA LA EDUCACIÓN DE LAS PERSONAS JÓVENES Y ADULTAS DE AGUASCALIENTES, en Sesión Extraordinaria celebrada el 11 de mayo de 2018.
+A T E N T A M E N T E
+LA JUNTA DE GOBIERNO DEL INSTITUTO PARA LA EDUCACIÓN DE LAS PERSONAS JÓVENES Y ADULTAS DE AGUASCALIENTES.
+INTEGRANTES
+CON VOZ Y VOTO:
+Profr. Raúl Silva Perezchica,
+DIRECTOR DEL INSTITUTO DE EDUCACIÓN.
+Lic. César Salvador Capuchino Delgado,
+SECRETARIO PARTICULAR DEL SECRETARIO GENERAL DE GOBIERNO.
+Lic. Ángel Alberto Murillo Rodríguez,
+ENCARGADO DE LITIGIOS DE LA SECRETARÍA DE DESARROLLO SOCIAL Y REPRESENTANTE DEL SECRETARIO.
+C. Jorge Alberto Carranza Castillo,
+SUBDIRECTOR DE DELEGACIONES E INSTITUTOS ESTATALES ZONA SUR, INEA.
+Lic. Deyanira Portillo Langagne,
+SUBDELEGADA DE LA SECRETARÍA DE EDUCACIÓN PÚBLICA Y REPRESENTANTE DEL DELEGADO.
+Profr. José Antonio Macías Medina,
+DIRECTOR DE EDUCACIÓN DE LA SECRETARÍA DE DESARROLLO SOCIAL DEL MUNICIPIO DE AGUASCALIENTES.
+Ing. Luis Zamarripa Aguilar,
+PRESIDENTE DEL PATRONATO PRO-EDUCACIÓN DE LOS ADULTOS A.C.
+Arq. Gerardo de Jesús Valadez Pérez,
+DIRECTOR DEL INSTITUTO DE INFRAESTRUCTURA FÍSICA EDUCATIVA DEL ESTADO DE AGUASCALIENTES.
+Lic. J. Merced Ismael Macías Jiménez,
+COORDINADOR DE CENTROS CRECER DE LA SECRETARÍA DE DESARROLLO SOCIAL.
+CON VOZ:
+M.A.P. Verónica Ramírez Luna,
+DIRECTORA GENERAL DEL INEPJA.
+M. en J.A. María Fernanda Cuéllar Loyola,
+JEFA DE LA UNIDAD DE ASUNTOS JURÍDICOS DEL INEPJA.
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]

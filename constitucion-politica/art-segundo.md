@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO.- Queda abrogado y sin efectos el Estatuto Orgánico del Instituto para la Educación de las Personas Jóvenes y Adultas de Aguascalientes, publicado en la Segunda Sección del Periódico Oficial del Estado, el día 30 de marzo de 2009.
