@@ -8,3 +8,4 @@ El Ejecutivo del Estado dispondrá se publique, circule y se le dé él debido c
 Dado en el salón de sesiones del H. Congreso del Estado Libre y Soberano de Chiapas, en la ciudad de Tuxtla Gutiérrez, Chiapas, a los veinte días del mes de Diciembre del año dos mil dos.- D. P. C. Víctor Hugo Ruiz Guillén. - D. S. C. Rodolfo Martínez Morales.- Rúbricas.
 De conformidad con la fracción I del artículo 42 de la Constitución Política Local y para su observancia, promulgo el presente decreto en la Residencia del Poder Ejecutivo del Estado, en la Ciudad de Tuxtla Gutiérrez, Chiapas, a los veintitrés días del mes de diciembre del año dos mil dos.
 Pablo Salazar Mendiguchía, Gobernador del Estado.- Emilio Zebadúa González, Secretario de Gobierno.- Evelio Rojas Morales.- Secretario de Hacienda.- Rúbricas.
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
