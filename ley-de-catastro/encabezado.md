@@ -1,5 +1,5 @@
 LEY DE CATASTRO PARA EL ESTADO DE CHIAPAS
-Ley publicada en el Periódico Oficial del Estado de Chiapas, el lunes 23 de diciembre de 2002.
+Ley publicada en el Periódico Oficial del Estado de Chiapas, el lunes 23 de diciembre del 2002.
 Pablo Salazar Mendiguchía, Gobernador del Estado Libre y Soberano de Chiapas, a sus habitantes hace saber: Que la Honorable Sexagésima Primera Legislatura del mismo, se ha servido dirigir al Ejecutivo a su cargo el siguiente:
 Decreto Número 019
 La Sexagésima Primera Legislatura Constitucional del Honorable Congreso del Estado Libre y Soberano de Chiapas, en uso de las facultades que le concede la Constitución Política Local; y,
