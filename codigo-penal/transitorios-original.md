@@ -6,3 +6,4 @@ El Ejecutivo del Estado dispondrá que se publique, circule y se le de el debido
 Dado en el salón de Sesiones del H. Congreso del Estado Libre y Soberano de Chiapas, en la Ciudad de Tuxtla Gutiérrez, a los 15 días del mes de febrero del año dos mil siete.- D. P. Dip. Roberto Domínguez Castellanos.- D. S. Dip. Juan Antonio Castillejos Castellanos.- Rúbricas.
 De conformidad con la fracción I del artículo 42 de la Constitución Política Local y para su observancia, promulgo el presente Decreto en la Residencia del Poder Ejecutivo del Estado, en la Ciudad de Tuxtla Gutiérrez, Chiapas, a los dieciséis días del mes de febrero del año dos mil siete.
 Juan Sabines Guerrero, Gobernador del Estado.- Jorge Antonio Morales Messner, Secretario de Gobierno.- Rúbricas.
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS DEL PRESENTE CODIGO.
