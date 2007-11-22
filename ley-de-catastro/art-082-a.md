@@ -8,7 +8,8 @@ III. Baja del registro:
 a) Por renuncia.
 b) En casos de resolución judicial.
 c) Por no revalidar el registro durante dos años consecutivos
-Aquellos profesionistas a los que les sea dado de baja el registro de perito valuador, podrán solicitarla nuevamente cumpliendo los requisitos que establece esta Ley y su Reglamento.
+(REFORMADO, P.O. 21 DE NOVIEMBRE DE 2007)
+Aquellos profesionistas a los que les sea dado de baja el registro de perito valuador; podrán solicitarlo nuevamente cumpliendo los requisitos que establece esta Ley y su Reglamento en un término no menor a un año, contado a partir de la fecha en que haya surtido efecto su baja.
 IV. Cancelación definitiva del registro, en los casos siguientes:
 a) Por reincidir en los actos que hayan motivado una suspensión temporal.
 b) Por la revelación injustificada y dolosa de datos.
