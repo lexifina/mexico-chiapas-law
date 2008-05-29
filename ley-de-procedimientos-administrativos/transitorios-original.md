@@ -9,3 +9,4 @@ Dado en el Salón de Sesiones del H. Congreso del Estado Libre y Soberano de Chi
 José Ángel Córdova Toledo.- D. S. Dip. Rafael Ceballos Cancino.- Rúbricas.
 De conformidad con la fracción I del Artículo 42 de la Constitución Política Local y para su observancia, promulgo el presente Decreto en la Residencia del Poder Ejecutivo del Estado, en la Ciudad de Tuxtla Gutiérrez, Chiapas, a los veintiocho días del mes de diciembre del año dos mil siete.
 Juan Sabines Guerrero, Gobernador del Estado, Jorge Antonio Morales Messner, Secretario de Gobierno.- Rúbricas.
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
