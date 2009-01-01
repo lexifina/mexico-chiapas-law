@@ -1,0 +1,4 @@
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+(ADICIONADO, P.O. 6 DE MAYO DE 2014)
+Artículo 79 Bis. Sólo podrán ser sancionados como delitos culposos los siguientes:
+Homicidio, a que se refiere el artículo 135; Lesiones, a que se refiere el artículo 140 fracciones I a VII; Peligro de Contagio, a que se refiere el artículo 189; Aborto, a que se refiere la fracción II del artículo 148; Daños, a que se refieren los artículos 206 y 208; Evasión de Presos, a que se refieren los artículos 376 y 377; Suministro de Medicinas Nocivas o Inapropiadas a que se refieren los artículos 238 y 239; Ataques a las Vías y a los Medios de Comunicación a que se refiere el artículo 247; Delitos contra el Ambiente a que se refieren los artículos 268, 270, 271, 273 y 274; y los demás casos contemplados específicamente en el presente Código y otras disposiciones legales.
