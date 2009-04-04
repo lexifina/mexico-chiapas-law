@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 3 DE ABRIL DE 2009)
+Artículo 71 Bis.- Cuando los sujetos pasivos del delito sean menores de edad, mujeres, personas con discapacidad y adultos mayores de sesenta y cuatro años, y en la ejecución del delito se emplee (sic) violencia moral, psicológica, verbal, económica o cualquier otro tipo de violencia, la pena establecida deberá aumentarse en una tercera parte de la que le corresponda del delito que se trate; y en una mitad más, cuando en la ejecución del delito se emplee (sic) violencia física.
