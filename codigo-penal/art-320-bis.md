@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 13 DE MAYO DE 2009)
+Artículo 320 Bis.- Comete el delito de usura el que por medio de pactos orales o contratos de mutuo o prendarios y que sin contar con los permisos correspondientes realice préstamos de dinero, y obtenga para él o para un tercero, beneficios económicos que estén en una notoria desproporción en relación a la prestación del servicio, así como si los intereses son superiores a la tasa legal establecida en el Código Civil del Estado.
