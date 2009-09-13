@@ -1,22 +1,30 @@
 (ADICIONADO CON EL ARTICULO QUE LO INTEGRA, P.O. 29 DE NOVIEMBRE DE 2007)
 CAPITULO II
 DE LAS ELECCIONES
+(REFORMADO PRIMER PARRAFO, P.O. 12 DE SEPTIEMBRE DE 2009)
+ARTICULO 14 BIS.- Las elecciones de Diputados al Congreso y miembros de los Ayuntamientos del Estado, se celebrarán el primer domingo de julio del año de la elección.
 (ADICIONADO, P.O. 29 DE NOVIEMBRE DE 2007)
-ARTICULO 14 BIS.- Las elecciones de Diputados al Congreso y miembros de los ayuntamientos del Estado, se celebrarán el primer domingo de julio del año de la elección.
 La actuación de los Poderes Públicos durante los procesos electorales será imparcial; sus servidores públicos deberán abstenerse de intervenir directa o indirectamente a favor o en contra de cualquier partido político, coalición, candidato o precandidato.
+(ADICIONADO, P.O. 29 DE NOVIEMBRE DE 2007)
 Las autoridades estatales, municipales, así como las delegaciones del órgano ejecutivo federal, así como los órganos constitucionales autónomos deberán cesar la difusión pública de obras y programas durante el tiempo que comprendan las campañas electorales y hasta la conclusión de la jornada electoral. Se exceptúa de lo anterior la difusión de campañas de información de las autoridades electorales, las relativas a servicios educativos y de salud, o las necesarias para la protección civil en casos de emergencia, así como aquellos en los que resulte imprescindible su difusión derivado de caso fortuito o fuerza mayor.
+(ADICIONADO, P.O. 29 DE NOVIEMBRE DE 2007)
 Cualquier violación a esta disposición, será sancionada en términos de esta Constitución y de la legislación de la materia, con independencia de lo dispuesto en el Código Penal.
+(ADICIONADO, P.O. 29 DE NOVIEMBRE DE 2007)
 Apartado A.- De los Ciudadanos Chiapanecos
 Los ciudadanos participarán en la vigilancia, preparación y desarrollo de los procesos electorales ordinarios y extraordinarios, así como en la fiscalización del origen, uso, aplicación y destino del financiamiento público y privado de los partidos políticos, empleado en sus actividades ordinarias, de precampaña, campaña y demás obligaciones, en los términos establecidos en esta Constitución y las leyes respectivas.
 Los ciudadanos ejercerán sus derechos consagrados en el párrafo anterior y de acceso a cualquier información, relativa a los partidos políticos, coaliciones, precandidatos o candidatos de conformidad con lo señalado por las normas que regulan la materia. Tendrán expedito el derecho de denunciar ante las autoridades competentes, cualquier irregularidad observada.
 La solicitud de información deberá presentarse ante el Instituto de Elecciones y Participación Ciudadana o la Comisión de Fiscalización Electoral, según corresponda. Este derecho se ejercerá bajo las mismas condiciones que regulan al derecho de petición, consagrado en la Constitución Federal.
 Los ciudadanos tendrán derecho a la afiliación a los partidos políticos, el cual se ejercerá de manera personal, libre e independiente. Toda afiliación corporativa o de grupo será nula y sancionada por la Ley.
 Los ciudadanos tendrán derecho a participar en las consultas ciudadanas de conformidad con lo establecido en la Ley.
+(ADICIONADO, P.O. 29 DE NOVIEMBRE DE 2007)
 Apartado B.- De los Partidos Políticos
 Los partidos políticos son entidades de interés público que tienen como fin promover la participación de los ciudadanos en la vida democrática del Estado; como organizaciones de ciudadanos, hacen posible el acceso de éstos al ejercicio del poder público, de acuerdo con los principios y programas que postulen. Su participación en los procesos electorales se sujetará a lo dispuesto por esta Constitución y las leyes aplicables.
-Los partidos políticos deben incluir entre sus candidatos propietarios a diputados al Congreso del Estado y a integrantes de los ayuntamientos a no más del setenta por ciento de un solo sexo y no menos del treinta por ciento de jóvenes menores de treinta años.
-La intervención en la vida interna de los partidos por parte de las autoridades electorales locales, sólo podrá ser conforme a las disposiciones que establezcan esta Constitución y las leyes respectivas.
-En caso de incumplimiento de lo prescrito en el párrafo anterior, no se registrarán a los candidatos de los partidos políticos o coaliciones de la elección de que se trate, hasta en tanto se garantice la equidad de género y el porcentaje de jóvenes.
+(REFORMADO, P.O. 12 DE SEPTIEMBRE DE 2009)
+La intervención en la vida interna de los partidos por parte de las autoridades electorales locales, sólo podrá ser conforme a las disposiciones que establezcan esta constitución y las leyes respectivas.
+(REFORMADO, P.O. 12 DE SEPTIEMBRE DE 2009)
+Los Partidos Políticos deben incluir entre sus candidatos propietarios a diputados al Congreso del Estado y a integrantes de los Ayuntamientos a no más del setenta por ciento de un solo sexo y no menos del treinta por ciento de jóvenes menores de treinta años, e incluir al menos uno con discapacidad, salvo los casos de inelegibilidad que establezca la ley de la materia.
+(REFORMADO, P.O. 12 DE SEPTIEMBRE DE 2009)
+En caso de incumplimiento de lo prescrito en el párrafo anterior, no se registrarán a los candidatos de los partidos políticos o coaliciones de la elección de que se trate, hasta en tanto se garantice la equidad de género, el porcentaje de jóvenes y discapacitados.
 Asimismo, en las zonas con predominancia en población indígena, los partidos políticos podrán registrar preferentemente candidatos de origen indígena.
 En la Ley se establecerán los fines, derechos, prerrogativas, obligaciones y responsabilidades de los partidos políticos estatales y nacionales así como las formas de su intervención en los procesos electorales estatales y locales.
 Asimismo, se fijarán las reglas y criterios a que se sujetará la asignación y distribución del financiamiento público de acuerdo con la disponibilidad presupuestal, garantizando que lo reciban en forma equitativa y que éste sea destinado para su sostenimiento y el desarrollo de sus, actividades ordinarias y las tendentes a la obtención del voto durante los procesos electorales. Del mismo modo se regularán el financiamiento privado, que en ningún caso podrá ser superior ni equivalente al del total del financiamiento público, los gastos que podrán erogar los partidos políticos, coaliciones, precandidatos y candidatos en las precampañas y campañas electorales; los métodos de financiación, procedimientos de fiscalización y vigilancia de los recursos de los partidos políticos, y las sanciones correspondientes.
@@ -26,7 +34,8 @@ Los partidos políticos registrados o acreditados ante el Instituto, para efecto
 Los partidos políticos que realicen coaliciones o alianzas sin sujetarse a las reglas establecidas en la Ley, deberán reintegrar el financiamiento público que se les asignó para la elección de que se trate, con independencia de las sanciones a que se hagan acreedores conforme a la Ley.
 Los partidos políticos y coaliciones, podrán celebrar procesos de selección interna para elegir a quienes serán registrados como candidatos para contender a los cargos de elección popular, de conformidad con lo que establezca las leyes de la materia. La duración de las precampañas electorales no podrá exceder de treinta días.
 Las campañas políticas tendrán como finalidad, la obtención del voto a favor de los candidatos que representan a los partidos políticos o coaliciones que los postulan, a través de la difusión de su plataforma electoral y el debate ideológico; en la propaganda política o electoral que difundan los partidos o coaliciones deberán abstenerse de expresiones que denigren o calumnien a las instituciones, a los propios partidos o a las personas.
-La campaña de gobernador no podrá exceder de noventa días; la de diputados al Congreso del Estado y la de miembros de los Ayuntamientos, de sesenta días.
+(REFORMADO, P.O. 12 DE SEPTIEMBRE DE 2009)
+La campaña de Gobernador; la de Diputados al Congreso del Estado y la de miembros de los Ayuntamientos, no podrá exceder de sesenta días.
 Los candidatos que postulen los partidos políticos y las coaliciones estarán obligados a participar en los debates organizados por la autoridad electoral correspondiente. Cualquier partido político o candidato que no cumpla con las anteriores disposiciones será sancionado en los términos de la Ley de la materia.
 Toda persona que realice actos de proselitismo o promoción personal de cualquier índole sin sujetarse a las disposiciones o tiempos que señale la legislación de la materia, se hará acreedora según el caso a las sanciones siguientes:
 a) No podrá participar en los procesos de selección interna de candidatos que realicen los partidos políticos o coaliciones;
@@ -36,6 +45,7 @@ La difusión de encuestas y sondeos de opinión, será regulada por la Ley, pero
 El Instituto de Elecciones y Participación Ciudadana, distribuirá a los partidos políticos en forma equitativa y de conformidad con la Ley, los tiempos en radio y televisión que otorgue el Gobierno del Estado.
 Se prohíbe a los partidos políticos y coaliciones por sí, por tercero o por interpósita persona, la contratación o adquisición de tiempos en radio y televisión. Asimismo, ninguna persona pública o privada, a titulo propio o por cuenta de terceros, podrá contratar propaganda en radio y televisión, dirigida a influir en las preferencias electorales de los ciudadanos, ni a favor o en contra de partidos políticos o de candidatos o precandidatos a puestos de elección popular. El Instituto de Elecciones y Participación Ciudadana en su caso, será el único facultado para la contratación de tiempo aire adicional en términos de la Ley de la materia.
 Las prohibiciones mencionadas en los párrafos anteriores, comprenden la contratación en el extranjero o en estados aledaños, de todo tipo de mensajes en los canales de radio y televisión que tengan cobertura en el Estado.
+(ADICIONADO, P.O. 29 DE NOVIEMBRE DE 2007)
 Apartado C.- De las Autoridades Electorales
 Las autoridades garantizarán a los ciudadanos que el ejercicio del sufragio sea libre, igual, universal, secreto y directo.
 La certeza, seguridad, veracidad, legalidad, independencia, imparcialidad y objetividad, serán los principios rectores del proceso electoral que regirán la actuación de las autoridades electorales en el ejercicio de sus atribuciones.
