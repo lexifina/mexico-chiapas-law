@@ -1,0 +1,1 @@
+Artículo Segundo.- Se abroga la Ley de Fraccionamientos del Estado de Chiapas, expedida mediante Decreto número 126 y publicado en el Periódico Oficial número 237-3a. Sección de fecha 03 de febrero de 1993.
