@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 30 DE DICIEMBRE DE 2009)
+Artículo 457 Bis.- Al que sin contar con la autorización de la autoridad competente, o contraviniendo los términos en que se haya concedido, desmonte o destruya la vegetación forestal, corte, arranque, derribe o tale árboles, realice aprovechamiento de recursos forestales o cambio de uso de suelo en terreno forestal, se le impondrá pena de prisión de cinco a doce años y multa de dos mil días de salario mínimo vigente en el Estado.
