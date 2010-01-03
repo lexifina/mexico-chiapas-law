@@ -1,3 +1,0 @@
-(ADICIONADO, P.O. 30 DE MAYO DE 2013)
-Artículo 275 bis 1. Se impondrán de seis meses a tres años de prisión y de treinta y seis a doscientos ochenta y ocho días multa, a los prestadores y laboratorios de servicios ambientales, que proporcionen documentos o información falsa u omitan datos con el objeto de que las autoridades ambientales otorguen o avalen cualquier tipo de permiso, autorización o permiso.
-Las penas previstas en este artículo se impondrán, siempre que la autoridad ambiental haya realizado gestiones para obtener el permiso, autorización o licencia de que se trate o bien haya otorgado el documento correspondiente.
