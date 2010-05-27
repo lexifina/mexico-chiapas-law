@@ -5,7 +5,7 @@ Decreto Número 139
 La Honorable Sexagésima Segunda Legislatura Constitucional del Estado Libre y Soberano de Chiapas, en uso de las facultades que le concede la Constitución Política Local; y
 Considerando
 .
-Por las anteriores consideraciones este Honorable Congreso del Estado, ha tenido ha bien emitir el siguiente:
+Por las anteriores consideraciones este Honorable Congreso del Estado, ha tenido ha (sic) bien emitir el siguiente:
 Código Penal para el Estado de Chiapas
 Libro Primero
 Parte General
