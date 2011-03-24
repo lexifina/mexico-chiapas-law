@@ -1,4 +1,4 @@
-(REFORMADO PRIMER PARRAFO, P.O. 17 DE NOVIEMBRE DE 2010)
+(REFORMADO PRIMER PÁRRAFO, P.O. 17 DE NOVIEMBRE DE 2010)
 Artículo 457 Ter.- A quien transporte, comercie, procese, acopie o distribuya recursos forestales maderables y no maderables, en cantidades de cuatro metros cúbicos o inferiores en rollo o su equivalente, sin la autorización de la autoridad competente, se impondrá pena de prisión de cinco a doce años y multa de dos mil a veinte mil días de salario mínimo vigente en el Estado.
 (ADICIONADO, P.O. 30 DE DICIEMBRE DE 2009)
 Se presumirá, salvo prueba en contrario, que la transportación, almacenamiento, distribución, comercialización o procesamiento de recursos forestales maderables, tienen fines ilícitos, cuando se realice de manera oculta o fuera del horario de las seis a las dieciocho horas, o la transportación se realice por ruta distinta a la señalada en la autorización correspondiente, en cuyo caso, se impondrá las penas previstas en el párrafo anterior.

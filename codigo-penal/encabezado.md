@@ -1,4 +1,4 @@
-CODIGO PENAL PARA EL ESTADO DE CHIAPAS
+CÓDIGO PENAL PARA EL ESTADO DE CHIAPAS
 Código publicado en la Tercera Sección del Periódico Oficial del Estado de Chiapas, el miércoles 14 de marzo de 2007.
 Juan Sabines Guerrero, Gobernador Constitucional del Estado Libre y Soberano de Chiapas, a sus habitantes hace saber: Que la Honorable Sexagésima Segunda Legislatura del mismo, se ha servido dirigir al Ejecutivo a su cargo el siguiente:
 Decreto Número 139
