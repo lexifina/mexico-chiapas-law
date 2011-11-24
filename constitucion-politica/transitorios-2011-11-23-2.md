@@ -1,0 +1,8 @@
+P.O. 23 DE NOVIEMBRE DE 2011.
+DECRETO NÚMERO. 008, POR EL QUE SE REFORMAN LOS NUMERALES DEL PÁRRAFO SEGUNDO DEL ARTICULO 2° Y EL PÁRRAFO TERCERO DEL ARTICULO 46, DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO DE CHIAPAS.
+Artículo Primero.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+Artículo Segundo.- Las superficies territoriales, coordenadas geográficas y colindancias de los nuevos municipios que por el presente Decreto se crean, estarán determinados en el anexo técnico que forma parte de este instrumento.
+Artículo Tercero.- El presente Decreto deberá remitirse a los Ayuntamientos del Estado, para efectos de lo dispuesto en la fracción I del artículo 72, de la Constitución Política del Estado de Chiapas.
+Artículo Cuarto.- De conformidad con lo previsto en el párrafo tercero, del artículo 69 de la Constitución Política del Estado de Chiapas, el Congreso del Estado procederá a la designación de los Concejos Municipales que realizarán las funciones de cuerpo edilicio en los nuevos municipios que por el presente Decreto se crean, hasta la conclusión del periodo Municipal que inició el primero de enero de dos mil once.
+Los primeros ayuntamientos de los nuevos municipios, cuyo ejercicio iniciará el primero de octubre de dos mil doce, serán electos a través de los comicios ordinarios que para ese periodo se celebren, conforme a lo dispuesto en la Constitución Política del Estado de Chiapas y el Código de Elecciones y Participación Ciudadana.
+Artículo Quinto.- Se derogan las disposiciones que se opongan a lo dispuesto en el presente Decreto.
