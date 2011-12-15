@@ -1,5 +1,5 @@
 P.O. 13 DE OCTUBRE DE 2010.
-DECRETO NUMERO 367, POR EL QUE SE REFORMA EL PARRAFO DECIMOCUARTO Y SE DEROGAN LOS PARRAFOS DECIMOQUINTO Y DECIMOSEXTO DEL ARTICULO 15 Y SE ADICIONA UN ARTICULO TRANSITORIO A LA CONSTITUCION POLITICA DEL ESTADO DE CHIAPAS.
+DECRETO NÚMERO 367, POR EL QUE SE REFORMA EL PÁRRAFO DECIMOCUARTO Y SE DEROGAN LOS PÁRRAFOS DECIMOQUINTO Y DECIMOSEXTO DEL ARTÍCULO 15 Y SE ADICIONA UN ARTÍCULO TRANSITORIO A LA CONSTITUCIÓN POLÍTICA DEL ESTADO DE CHIAPAS.
 Primero.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
 Segundo.- Para la LXIV Legislatura que inicia el día 16 de noviembre del año 2010 y concluye el 30 de septiembre del año 2012, por única ocasión la Presidencia de la Junta de Coordinación Política y la Mesa Directiva del Congreso del Estado se regirán conforme a lo siguiente:
 a) La responsabilidad de presidir la Junta de Coordinación Política, tendrá una duración de siete meses y quince días. Esta encomienda se desempeñara sucesivamente por los coordinadores de los grupos parlamentarios, en orden decreciente del número de Legisladores que la integren.
