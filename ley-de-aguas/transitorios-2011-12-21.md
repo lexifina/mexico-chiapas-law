@@ -1,0 +1,5 @@
+P.O. 21 DE DICIEMBRE DE 2011.
+Artículo Primero.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+Artículo Segundo.- Los Organismos Operadores Municipales que en términos de lo dispuesto en el artículo Tercero Transitorio del Decreto 404, publicado en el Periódico Oficial número 263, de fecha cinco de noviembre de dos mil diez, no hubiesen realizado las adecuaciones funcionales y la celebración del convenio correspondiente, deberán formalizarlos en un plazo no mayor a noventa días, contados a partir de la entrada en vigor del presente Decreto.
+Asimismo, los Organismos Operadores Municipales, que hayan celebrado dichos convenios fuera de los términos señalados en el artículo Tercero Transitorio del Decreto referido en el párrafo que antecede, tendrán plena validez jurídica, así como los actos realizados por éstos y los que se celebren en lo sucesivo, siempre y cuando no contravengan las disposiciones establecidas en la Ley de Aguas para el Estado de Chiapas y la normativa aplicable.
+Artículo Tercero.- Se derogan todas las disposiciones que se opongan al presente Decreto.
