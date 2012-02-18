@@ -1,0 +1,6 @@
+P.O. 15 DE FEBRERO DE 2012.
+Primero.- El presente Decreto entrará en vigor el día veintiuno del mes de mayo del año 2012.
+Segundo.- Dentro del término de ciento ochenta días contados a partir de la publicación del presente Decreto en el Periódico Oficial, se llevarán a cabo las modificaciones necesarias para adecuar los ordenamientos jurídicos respectivos relativos al Sistema de Justicia de Corte Acusatorio.
+Tercero.- La aplicación de las normas jurídicas relativas al Sistema de Justicia Acusatorio se estarán a lo dispuesto en los términos y modalidades que para tal efecto se determine en el Código de Procedimientos Penales para el Estado de Chiapas, que al respecto se emita.
+Cuarto.- Las autoridades correspondientes, en el ámbito de sus respectivas competencias, deberán realizar las gestiones necesarias para proveerse de los recursos económicos que se requieran para la instalación, funcionamiento y capacitación del Sistema de Justicia Acusatorio, correspondiente a la presente anualidad, de igual manera deberán proceder para los ejercicios fiscales subsiguientes en los presupuestos de egresos que al efecto presenten ante el Congreso del Estado.
+Quinto.- Se derogan las disposiciones que se opongan al presente Decreto.

@@ -1,4 +1,4 @@
-ARTICULOS TRANSITORIOS
+ARTÍCULOS TRANSITORIOS
 Artículo I.- Esta Constitución comenzará a regir el cinco de febrero del año en curso, fecha en que se publicará por bando solemne en todas las poblaciones del Estado.
 Artículo II.- (DEROGADO, P.O. 9 DE OCTUBRE DE 1990)
 Artículo III.- (DEROGADO, P.O. 7 DE ENERO DE 1994)
