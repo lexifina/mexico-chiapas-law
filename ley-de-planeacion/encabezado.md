@@ -1,4 +1,4 @@
-LEY DE PLANEACION PARA EL ESTADO DE CHIAPAS
+LEY DE PLANEACIÓN PARA EL ESTADO DE CHIAPAS
 Ley publicada en el Periódico Oficial del Estado de Chiapas, el jueves 17 de Marzo de 2005.
 Pablo Salazar Mendiguchía, Gobernador del Estado Libre y Soberano de Chiapas, a sus habitantes hacer saber: que la Honorable Sexagésima Segunda Legislatura del mismo, se ha servido dirigir al Ejecutivo a su cargo el siguiente:
 Decreto Numero 129
