@@ -1,0 +1,1 @@
+Artículo Tercero.- Se abroga la Ley de Las y Los Jóvenes para el Estado de Chiapas, publicada en el Periódico Oficial Número 233, de fecha 21 de Abril del 2004, mediante Decreto Número 140, así como todas las reformas de que fue objeto la misma.

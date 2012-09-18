@@ -1,0 +1,5 @@
+Artículo Cuarto.- El Instituto Estatal de la Juventud, propondrá al Ejecutivo del Estado para su expedición, el reglamento de la presente Ley, en un periodo de 90 días contados a partir de la publicación de la misma.
+El Ejecutivo del Estado, dispondrá se publique, circule y se dé el debido cumplimiento al presente Decreto.
+Dado en el Salón de Sesiones del H. Congreso del Estado Libre y Soberano de Chiapas, en la Ciudad de Tuxtla Gutiérrez, Chiapas, a los 14 días del mes de Septiembre del año dos mil doce.- D.P.C. Roberto Baldomero Gutiérrez Dávila.- D. S. C. Alejandra Cruz Toledo Zebadúa.- Rúbricas.
+De conformidad con la fracción I del artículo 44 de la Constitución Política local y para su observancia, promulgo el presente Decreto en la Residencia del Poder Ejecutivo del Estado, en la Ciudad de Tuxtla Gutiérrez, Chiapas, a los diecisiete días del mes de septiembre del año dos mil doce.-
+Juan Sabines Guerrero, Gobernador del Estado.- Noé Castañón León, Secretario General de Gobierno.- Rúbricas.
