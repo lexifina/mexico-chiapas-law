@@ -1,6 +1,2 @@
-(ADICIONADO, P.O. 17 DE SEPTIEMBRE DE 2012)
-Artículo 478 Bis.- Para la persecución de los delitos previstos en el presente Título, en lo conducente se estará a lo dispuesto por el artículo 36 Bis de la Ley de Fiscalización Superior del Estado de Chiapas.
-Título Vigésimo Sexto
-Delitos en Materia Electoral
-Capítulo I
-Generalidades
+(ADICIONADO [N. DE E. REFORMADO], P.O. 28 DE NOVIEMBRE DE 2012)
+Artículo 478 Bis.- Se impondrán de tres a diez años de prisión y de ochocientos a dos mil seiscientos días multa, a quien haga uso de recursos de procedencia ilícita para alentar alguna actividad que la ley prevea como tipo penal o ayudar a cualquier persona a eludir las consecuencias jurídicas de su participación en un delito, a través de la realización de cualquiera de las conductas señaladas en las fracciones I y II del artículo 478 del (sic) este Código, siempre que no se incurra en el delito de operaciones con recursos de procedencia ilícita.

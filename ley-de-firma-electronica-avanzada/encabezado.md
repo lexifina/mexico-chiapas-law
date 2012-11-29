@@ -1,4 +1,4 @@
-LEY DE FIRMA ELECTRONICA AVANZADA DEL ESTADO DE CHIAPAS
+LEY DE FIRMA ELECTRÓNICA AVANZADA DEL ESTADO DE CHIAPAS
 Ley publicada en el Periódico Oficial del Estado de Chiapas, el miércoles 21 de octubre de 2009.
 Juan Sabines Guerrero, Gobernador del Estado de Chiapas, a sus habitantes hace saber: Que la Comisión Permanente de la Honorable Sexagésima Tercera Legislatura del Congreso del Estado, se ha servido dirigir al Ejecutivo a su cargo el siguiente:
 Decreto Número 325

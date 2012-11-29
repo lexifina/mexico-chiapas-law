@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 28 DE NOVIEMBRE DE 2012)
+Artículo 478 Ter.- Se impondrán de tres a nueve años de prisión y de mil a dos mil quinientos días de multa, al que permita que se intitulen bajo su nombre bienes o derechos adquiridos con recursos, derechos o bienes que proceden o representen el producto de una actividad ilícita, aun cuando no haya tenido conocimiento de esta última circunstancia.
+Cuando la persona que realiza los actos jurídicos, con el resultado mencionado en el párrafo anterior, revele a la autoridad competente la identidad de quien haya aportado los recursos o de quien se conduzca como dueño, la pena podrá ser reducida hasta dos terceras partes.
