@@ -1,4 +1,4 @@
-LEY DE CONCESIONES DE SERVICIOS E INFRAESTRUCTURA PUBLICA PARA EL ESTADO DE CHIAPAS
+LEY DE CONCESIONES DE SERVICIOS E INFRAESTRUCTURA PÚBLICA PARA EL ESTADO DE CHIAPAS
 Ley publicada en la Segunda Sección del Periódico Oficial del Estado de Chiapas, el miércoles 16 de mayo de 2007.
 Juan Sabines Guerrero, Gobernador Constitucional del Estado Libre y Soberano de Chiapas, a sus habitantes hace saber: Que la Honorable Sexagésima Segunda Legislatura del mismo, se ha servido dirigir al Ejecutivo a su cargo el siguiente:
 Decreto Número 179
