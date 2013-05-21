@@ -1,0 +1,4 @@
+P.O. 20 DE MAYO DE 2013.
+Artículo Primero.- El presente Decreto entrará en vigor al día siguiente a su publicación en el Periódico Oficial.
+Artículo Segundo.- Se derogan todas las disposiciones que se opongan a lo dispuesto en el presente Decreto.
+Artículo Tercero.- Por única ocasión, los Ayuntamientos del Estado de Chiapas, que iniciaron su administración el pasado 01 de octubre de 2012, como excepción a lo establecido en el artículo 29 de la Ley de Planeación para el Estado de Chiapas, tendrán un plazo de 30 días, posteriores a la fecha en que sea presentado por el Titular del Ejecutivo del Estado, el Plan Estatal de Desarrollo 2012- 2018, para alinear sus políticas públicas con lo establecido en el citado Plan Estatal y en concordancia con los Objetivos de Desarrollo del Milenio de la ONU, y remitir sus respectivos Planes Municipales de Desarrollo, a este Honorable Congreso del Estado para ser examinados y en su caso aprobados.
