@@ -1,0 +1,1 @@
+Artículo Tercero.- El Ejecutivo del Estado y el Ayuntamiento de los Municipios, en el ámbito de sus respectivas competencias, deberán emitir el Reglamento de esta Ley, en un plazo no mayor de sesenta días hábiles posteriores a la entrada en vigor del presente Decreto.

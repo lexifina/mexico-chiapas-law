@@ -1,0 +1,6 @@
+Artículo Quinto.- La Secretaría de Infraestructura, en coordinación como los municipios y los órganos especializados, deberán expedir respectivamente, el Reglamento Interno del Comité de Obra Pública según corresponda, en un término no mayor a sesenta días contados a partir de la entrada en vigencia del presente Decreto.
+En tanto se expiden los Reglamentos a los que se hace referencia en el párrafo que antecede, se seguirán aplicando los Reglamentos que se encuentran vigentes, hasta la entrada en vigor del presente Decreto.
+El Ejecutivo del Estado dispondrá se publique, circule y se dé el debido cumplimiento al presente Decreto.
+Dado en el Salón de Sesiones del H. Congreso del Estado Libre y Soberano de Chiapas, en la Ciudad de Tuxtla Gutiérrez, Chiapas; a los 29 días del mes de julio del año dos mil trece. D.P.C. Luis Fernando Castellanos Cal y Mayor.- D.S.C. Ana del Carmen Valdiviezo Hidalgo.- Rúbricas.
+De conformidad con la fracción I del artículo 44 de la Constitución Política local y para su observancia, promulgo el presente Decreto en la Residencia del Poder Ejecutivo del Estado, en la ciudad de Tuxtla Gutiérrez, Chiapas, a los veintinueve días del mes de Julio del año dos mil trece.
+Manuel Velasco Coello, Gobernador del Estado de Chiapas.- Oscar Eduardo Ramírez Aguilar, Secretario General de Gobierno.- Rúbricas.

@@ -1,0 +1,1 @@
+Artículo Segundo.- Se Abroga la Ley de Obra Pública del Estado de Chiapas, publicada en el Periódico Oficial número 28, mediante Decreto número 183, de fecha 16 de abril de 2013. Así como las demás disposiciones que se deriven de esta, que se hayan emitido con anterioridad a esta Ley o que se oponga a la misma.

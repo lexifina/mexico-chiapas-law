@@ -1,0 +1,1 @@
+Artículo Cuarto.- Respecto a las obras que antes de la entrada en vigencia del presente Decreto, hayan iniciado el procedimiento de contratación, o bien, hayan sido adjudicadas o contratadas, se seguirán rigiendo por las disposiciones de esta Ley.
