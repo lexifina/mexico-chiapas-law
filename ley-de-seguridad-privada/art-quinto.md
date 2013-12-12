@@ -1,0 +1,1 @@
+Artículo Quinto.- La denominación de Servicios Privados de Seguridad que se encuentre contenida en Leyes, reglamentos, así como cualquier disposición jurídica o administrativa, se tendrá por entendida a los Servicios de Seguridad Privada.

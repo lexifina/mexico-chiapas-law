@@ -1,0 +1,1 @@
+Artículo Cuarto.- El Reglamento que Regula la Prestación de los Servicios de Seguridad Privada en el Estado de Chiapas, publicado en el Periódico Oficial número 115, de fecha 10 de septiembre de 2008, seguirá vigente en tanto se expida el nuevo Reglamento de la presente Ley.

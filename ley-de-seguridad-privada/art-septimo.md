@@ -1,0 +1,5 @@
+Artículo Séptimo.- Los prestadores de servicios que no cuenten con la autorización o revalidación correspondiente, dispondrán de un término de noventa días naturales, contados a partir de la entrada en vigor de esta Ley, para regularizar su situación de trabajo.
+El Ejecutivo del Estado dispondrá se publique, circule y se le dé el debido cumplimiento al presente Decreto.
+Dado en el Salón de Sesiones del H. Congreso del Estado Libre y Soberano de Chiapas, en la ciudad de Tuxtla Gutiérrez, Chiapas a los 05 días del mes de diciembre del año dos mil Trece.- D. P. C. Neftalí Armando del Toro Guzmán.- D. S. C. José Agustín López Lara.- Rúbricas.
+De conformidad con la fracción I del artículo 44 de la Constitución Política Local y para su observancia, promulgo el presente Decreto en la residencia del Poder Ejecutivo del Estado, en la ciudad de Tuxtla Gutiérrez, Chiapas, a los seis días del mes de diciembre del año dos mil trece.
+Manuel Velasco Coello, Gobernador del Estado de Chiapas.- Óscar Eduardo Ramírez Aguilar, Secretario General de Gobierno.- Rúbricas.
