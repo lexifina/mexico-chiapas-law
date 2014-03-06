@@ -1,0 +1,1 @@
+Artículo Segundo.- Se abroga la Ley de Fomento Económico y Atracción de Inversiones publicada en el Periódico Oficial del Estado número 051, de fecha 3 de octubre de 2007, y se derogan las disposiciones que se opongan al presente ordenamiento legal.
