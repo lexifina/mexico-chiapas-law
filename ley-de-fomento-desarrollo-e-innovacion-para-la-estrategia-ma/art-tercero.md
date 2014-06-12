@@ -1,0 +1,1 @@
+Artículo Tercero.- El Titular del Poder Ejecutivo del Estado, a través de las Secretarías de Hacienda y Economía, proveerán lo necesario para la instrumentación y aplicación de las disposiciones contenidas en el presente instrumento, en el ámbito de sus respectivas competencias.

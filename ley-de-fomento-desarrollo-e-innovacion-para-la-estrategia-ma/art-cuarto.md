@@ -1,0 +1,1 @@
+Artículo Cuarto.- El Titular del Poder Ejecutivo del Estado a través de la Dependencia rectora en la materia, en un término no mayor de 90 días hábiles, contados a partir de la entrada en vigor de la Ley, establecerá los mecanismos financieros que considere necesarios para cumplir con lo dispuesto en el presente instrumento.

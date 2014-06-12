@@ -1,0 +1,1 @@
+Artículo Sexto.- El Titular del Poder Ejecutivo del Estado, en un término no mayor a 180 días hábiles, contados a partir de la entrada en vigor de la presente Ley, expedirá el Reglamento de este ordenamiento.
