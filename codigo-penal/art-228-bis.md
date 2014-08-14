@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 13 DE AGOSTO DE 2014)
+Artículo 228 Bis.- Se aplicará pena de dos a ocho años de prisión y multa de quinientos a mil días de salario mínimo, a quien con el propósito de obtener un lucro o cualquier otro beneficio para sí o un tercero, a través de llamadas telefónicas, mensajes de texto o cualquier otro medio electrónico, pretenda hacer creer a una persona que su integridad física, o su vida, o su patrimonio o de alguno de sus familiares o terceros pudieran sufrir un detrimento.
+Cuando el delito previsto en el párrafo anterior sea cometido por un servidor o ex servidor público de una institución de seguridad pública, de procuración o de administración de justicia, la pena aplicable será de cuatro a doce años de prisión y multa de quinientos a mil días de salario mínimo. Además de la pena de prisión y multa prevista, el servidor público será destituido y se le inhabilitará para desempeñar cualquier empleo, cargo o comisión públicos hasta por un término igual a la pena impuesta.
+Capítulo II
+Allanamiento
