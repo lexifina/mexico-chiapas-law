@@ -1,0 +1,5 @@
+P.O. 27 DE NOVIEMBRE DE 2014.
+Artículo Primero.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+Artículo Segundo.- Se derogan todas las disposiciones legales que se opongan al presente Decreto.
+Artículo Tercero.- Los recursos humanos, materiales y financieros, que hasta la entrada en vigor del presente Decreto, se encuentren asignados al Consejo para la Supervisión y Control de la Administración de Bienes Asegurados, Abandonados, serán transferidos de inmediato a la Comisión para la Supervisión de la Administración de Bienes Asegurados, Abandonados y Decomisados.
+Artículo Cuarto.- Los compromisos y procedimientos que a la entrada en vigor del presente Decreto, hubiere contraído el Consejo para la Supervisión y Control de la Administración de Bienes Asegurados, Abandonados, serán asumidos inmediatamente y se entenderán conferidos a la Comisión para la Supervisión de la Administración de Bienes Asegurados, Abandonados y Decomisados.
