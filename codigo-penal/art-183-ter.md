@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 24 DE DICIEMBRE DE 2014)
+Artículo 183 Ter.- Comete el delito de violencia obstétrica el que se apropie del cuerpo y procesos reproductivos de una mujer, expresado en un trato deshumanizador, abuso en el suministro de medicación o patologización de los procesos naturales, generando como consecuencia la pérdida de autonomía y capacidad de decidir libremente sobre su cuerpo y sexualidad.
+Con independencia de las lesiones causadas, al responsable del delito de violencia obstétrica, se le impondrá la sanción de uno a tres años de prisión y hasta doscientos días de multa, así como suspensión de la profesión, cargo u oficio, por un término igual al de la pena privativa de libertad impuesta, y el pago de la reparación integral del daño.

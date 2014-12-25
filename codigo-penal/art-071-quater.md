@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 24 DE DICIEMBRE DE 2014)
+Artículo 71 Quater.- Corresponde a las autoridades jurisdiccionales competentes valorar las órdenes emitidas o la determinación de las mismas en sus resoluciones.
+Las órdenes de protección, atendiendo a la naturaleza de cada una de ellas, se otorgarán de oficio o a petición de las víctimas, de las hijas o hijos, de las personas que convivan con ellas o se encuentren a su guarda o custodia, de los responsables de la atención integral de los refugios o del Ministerio Público. Respecto de las personas menores de edad, se sujetarán a lo establecido en el Código de Atención a la Familia y Grupos Vulnerables para el Estado Libre y Soberano de Chiapas.

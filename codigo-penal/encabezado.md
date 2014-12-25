@@ -10,5 +10,6 @@ Libro Primero
 Parte General
 Título Primero
 Ley Penal
+(REFORMADA SU DENOMINACIÓN, P.O. 24 DE DICIEMBRE DE 2014)
 Capítulo I
-Validez Espacial
+Validez espacial y ámbito de aplicación personal
