@@ -1,3 +1,1 @@
-(ADICIONADO, P.O. 5 DE NOVIEMBRE DE 2010)
-Artículo 69 Quáter.- Las niñas, niños y adolescentes, ejercerán plenamente su derecho a la identidad, así como al reconocimiento de la paternidad o maternidad.
-El Gobierno del Estado les prestará la asistencia, protección y asesoría necesarias para protegerlos de toda violación a su derecho a la identidad.
+Artículo 69 Quáter.- (DEROGADO POR TRANSITORIO ARTÍCULO TERCERO DE LA LEY DE LOS DERECHOS DE NIÑAS, NIÑOS Y ADOLESCENTES DEL ESTADO DE CHIAPAS, P.O. 17 DE JUNIO DE 2015)
