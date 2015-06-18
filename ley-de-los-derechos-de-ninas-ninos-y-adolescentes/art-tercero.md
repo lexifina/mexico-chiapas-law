@@ -1,0 +1,1 @@
+Artículo Tercero.- Se deroga con el presente Decreto, lo relativo al Libro Segundo denominado "De la Protección de los Derechos de las Niñas, Niños y Adolescentes del Estado", que comprende de los artículos 61 al 123, todos del Código de Atención a la Familia y Grupos Vulnerables para el Estado Libre y Soberano de Chiapas.

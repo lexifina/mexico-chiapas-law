@@ -1,0 +1,2 @@
+Artículo Décimo.- Los Municipios del Estado, deberán asignar las partidas presupuestales que correspondan, para hacer lo concurrente a lo mandatado en esta Ley, para tales efectos se deberán realizar las modificaciones legales correspondientes a su legislación fiscal.
+Así mismo, deberán prever dentro de su presupuesto, la creación de las Procuradurías Municipales de Protección de los Derechos de las Niñas, Niños, Adolescentes y la Familia, las cuales deberán contar con al menos, un procurador, un psicólogo y un trabajador social.

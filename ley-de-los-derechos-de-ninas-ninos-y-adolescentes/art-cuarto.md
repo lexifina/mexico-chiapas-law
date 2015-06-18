@@ -1,0 +1,2 @@
+Artículo Cuarto.- Los Sistemas de Protección Integral Estatal y Municipales, deberán integrarse a más tardar dentro de los noventa días hábiles, siguientes a la entrada en vigor del presente Decreto.
+El Presidente de los Sistemas de Protección Integral Estatal y Municipales, realizarán las acciones necesarias para la elaboración de sus Programa (sic), los cuales deberá (sic) aprobarse dentro de los treinta días hábiles siguientes a la instalación de dichos Sistemas.

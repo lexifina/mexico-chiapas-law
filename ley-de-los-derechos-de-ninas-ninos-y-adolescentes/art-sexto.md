@@ -1,0 +1,1 @@
+Artículo Sexto.- El Titular de la Secretaría Ejecutiva del Sistema Estatal de Protección Integral, una vez instalado el mismo, dentro de los siguientes treinta días naturales, deberá presentar a consideración y en su caso aprobación de los integrantes de dicho Sistema, el proyecto de lineamientos a que se refiere el artículo 156 de la presente Ley.

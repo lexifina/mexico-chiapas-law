@@ -1,0 +1,1 @@
+Artículo Segundo.- Todas las modificaciones a las disposiciones normativas, derivadas de lo establecido en la presente Ley, deberán ser expedidas, en un término no mayor a 90 días hábiles, siguientes a la entrada en vigor del presente Decreto.
