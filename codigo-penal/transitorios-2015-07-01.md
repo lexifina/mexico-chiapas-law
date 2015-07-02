@@ -1,0 +1,4 @@
+P.O. 1 DE JULIO DE 2015.
+Artículo Primero.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+Artículo Segundo.- Los delitos a que se refieren los artículos derogados por este Decreto, serán competencia de las autoridades ministeriales y judiciales de la Entidad, de conformidad con lo dispuesto en la Ley General para Prevenir y Sancionar los Delitos en Materia de Secuestro, reglamentaria de la fracción XXI del artículo 73 de la Constitución Política de los Estados Unidos Mexicanos.
+Artículo Tercero.- Las disposiciones relativas a los delitos a que se refieren los artículos derogados por este Decreto, seguirán aplicándose por los hechos realizados durante su vigencia. Asimismo, dichos preceptos seguirán aplicándose a las personas procesadas o sentenciadas por los delitos previstos y sancionados por los mismos artículos.
