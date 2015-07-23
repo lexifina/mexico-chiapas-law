@@ -1,0 +1,12 @@
+P.O. 22 DE JULIO DE 2015.
+[N. DE E. TRANSITORIOS DEL "DECRETO POR EL QUE SE ESTABLECE LA VIGÉSIMA QUINTA REFORMA A LA CONSTITUCIÓN POLÍTICA DEL ESTADO DE CHIAPAS".]
+Artículo Primero.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+Artículo Segundo.- Se derogan todas las disposiciones que se opongan al contenido del presente Decreto.
+Artículo Tercero.- Dentro del plazo de sesenta días hábiles contados a partir de la entrada en vigor del presente Decreto, deberán llevarse a cabo las reformas a los ordenamientos legales aplicables, a fin de adecuarlas a lo previsto en este Decreto; así como expedirse la Ley orgánica respectiva.
+En tanto se expidan las disposiciones legales, reglamentarias y acuerdos generales, seguirán siendo aplicadas las que se encuentran vigentes a la entrada en vigor del presente Decreto, salvo en los casos en que se opongan al mismo.
+Artículo Cuarto.- A partir de que se realicen las reformas a la normatividad correspondiente, los expedientes o asuntos administrativos en segunda instancia que se encuentran en trámite o bajo cualquier concepto en el Tribunal Constitucional, y que no estén totalmente concluidos, deberán remitirse al Tribunal de Justicia Administrativa, a efecto que se que se (sic) continúe con su substanciación.
+Los asuntos serán tramitados y resueltos conforme a las normas aplicables vigentes al momento de su interposición.
+Artículo Quinto.- El órgano autónomo que por este Decreto se crea, deberá integrarse a más tardar dentro de los 30 días hábiles siguientes a la entrada en vigor del presente Decreto, y comenzará a ejercer sus atribuciones a partir de que entren en vigor las normas previstas en la ley de la materia.
+Artículo Sexto.- El Congreso del Estado aprobará el presupuesto necesario para que el Tribunal de Justicia Administrativa sea creado, y cumpla cabalmente con el objeto del mismo.
+Artículo Séptimo.- El Magistrado Presidente deberá ser designado en la primera sesión del Pleno del Tribunal de Justicia Administrativa.
+Artículo Octavo.- Una vez que entre en vigor en nuestra Entidad Federativa, el Sistema Local Anticorrupción, el Tribunal de Justicia Administrativa será el Órgano competente que asumirá las atribuciones establecidas en la legislación correspondiente. Para lo cual, se llevará a cabo las adecuaciones necesarias a la normatividad en la materia.
