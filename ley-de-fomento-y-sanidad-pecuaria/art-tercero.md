@@ -1,0 +1,1 @@
+Artículo Tercero.- Todos los Comités, Directivas, y demás organismos y organizaciones previstas en la presente Ley, deberán constituirse en un término de noventa días naturales a partir de la entrada en vigor de la presente Ley; y deberán emitir sus lineamientos, manuales o reglas de operación en el plazo antes señalado, mismas que serán a convocatoria de la Secretaría.
