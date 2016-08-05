@@ -11,7 +11,9 @@ A) EL CÓDIGO PENAL PARA EL ESTADO DE CHIAPAS:
 8. Tráfico de menores de edad y de los que no tengan capacidad para entender el significado del hecho, previsto en el artículo 208, primer párrafo.
 9. Sustracción de menores y los que no tengan capacidad para entender el significado del hecho, previsto en los artículos 223, segundo párrafo y 224.
 10. Asalto, previsto en los artículos 231 y 232.
-11. Violación, previsto en los artículos 233, 234 y 235.
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE NUMERAL, VÉASE TRANSITORIO ARTÍCULO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.]
+(REFORMADO, P.O. 6 DE JULIO DE 2016)
+11. Violación, previsto en los artículos 233 y 234.
 12. Abuso sexual, previsto en el último párrafo del artículo 242.
 13. Robo, previsto en los artículos 270, con relación al 274, 275 y 276, fracciones IV, VII, VIII, IX, X, XII, XIV, XV, XVI y XVII.
 14. Delitos previstos y sancionados en los artículos 277, 278, 279, 281, con independencia de que sean ejecutados con violencia y/o agravados.
@@ -44,6 +46,9 @@ A) EL CÓDIGO PENAL PARA EL ESTADO DE CHIAPAS:
 41. Delitos contra el saneamiento del ambiente y la ecología del estado, previstos y sancionados en los artículos 456, 457, fracción I, II, III, IV, VI, VIII, X y XI, 458, fracciones I, X y XI, y 459.
 42. Operaciones con recursos de procedencia ilícita, previsto y sancionado por el artículo 478.
 43. Usura, previsto y sancionado en los artículos 320 bis, 320 ter, 320 quater y 320 quintus.
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE NUMERAL, VÉASE TRANSITORIO ARTÍCULO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.]
+(ADICIONADO, P.O. 6 DE JULIO DE 2016)
+44. Pederastia, previsto y sancionado en los artículos 235 y 236.
 En su caso, la comisión de los delitos mencionados en grado de tentativa como lo establece este Código.
 B) EL CÓDIGO PENAL PARA EL ESTADO DE CHIAPAS Y OTRAS DISPOSICIONES LEGALES:
 (NOTA: EL 31 DE MAYO DE 2018, EL PLENO DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN, EN EL CONSIDERANDO SÉPTIMO, ASÍ COMO EN EL RESOLUTIVO SEGUNDO DE LA SENTENCIA DICTADA AL RESOLVER LA ACCIÓN DE INCONSTITUCIONALIDAD 109/2015, DECLARÓ LA INVALIDEZ DEL NUMERAL 1 DEL INCISO B) DE ESTE ARTÍCULO INDICADO CON MAYÚSCULAS, LA CUAL SURTIÓ EFECTOS RETROACTIVOS AL 22 DE SEPTIEMBRE DE 2015 FECHA EN QUE ENTRÓ EN VIGOR DICHO PRECEPTO DE ACUERDO A LAS CONSTANCIAS QUE OBRAN EN LA SECRETARÍA GENERAL DE ACUERDOS DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN. DICHA SENTENCIA PUEDE SER CONSULTADA EN LA DIRECCIÓN ELECTRÓNICA http://www2.scjn.gob.mx/).
