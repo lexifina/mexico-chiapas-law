@@ -1,4 +1,5 @@
-CONSTITUCIÓN POLÍTICA DEL ESTADO DE CHIAPAS
+[N. DE E. EL DECRETO NÚMERO 044, EXPEDIDO POR LA SEXAGÉSIMA SEXTA LEGISLATURA, PUBLICADO EN EL P.O. DE 29 DE DICIEMBRE DE 2016, MODIFICÓ DE FORMA SUSTANCIAL LA ESTRUCTURA Y CONTENIDO DEL PRESENTE ORDENAMIENTO.]
+CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DE CHIAPAS
 Constitución publicada en Alcance No. 5 al Periódico Oficial del Estado de Chiapas, el 3 de febrero de 1921.
 TIBURCIO FERNANDEZ RUIZ, General de División del Ejército Nacional y Gobernador Constitucional del Estado Libre y Soberano de Chiapas, a sus habitantes hago saber:
 Que la H. XXVIII Legislatura del mismo, ha tenido a bien decretar:
