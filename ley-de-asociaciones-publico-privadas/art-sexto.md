@@ -1,0 +1,5 @@
+Artículo Sexto.- Para la interpretación de lo dispuesto en el presente instrumento, así como para las situaciones no previstas, la Secretaría de Hacienda, y la Secretaría de Planeación, Gestión Pública y Programa de Gobierno, resolverán lo conducente.
+El Ejecutivo del Estado, dispondrá se publique, circule y se dé el debido cumplimiento al presente Decreto.
+Dado en el Salón de Sesiones Sergio Armando Valls Hernández del Honorable Congreso del Estado Libre y Soberano de Chiapas, en la Ciudad de Tuxtla Gutiérrez, Chiapas, a los 20 días del mes de diciembre del año dos mil dieciséis.- D.P.C. Eduardo Ramírez Aguilar.- D.S.C. Fabiola Ricci Diestel.- Rúbricas.
+De conformidad con la fracción I del artículo 59 de la Constitución Política Local y para su observancia, promulgo el presente Decreto en la Residencia del Poder Ejecutivo del Estado, en la Ciudad de Tuxtla Gutiérrez, Chiapas, a los 31 días del mes de Diciembre del año Dos Mil Dieciséis, con el refrendo del C. Secretario General de Gobierno.
+Manuel Velasco Coello, Gobernador del Estado de Chiapas.- Juan Carlos Gómez Aranda Secretario General de Gobierno.- Rúbricas.

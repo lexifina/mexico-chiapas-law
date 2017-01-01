@@ -1,0 +1,1 @@
+Artículo Tercero.- Los proyectos equiparables a los regulados por esta Ley, iniciados con antelación a su vigencia, y que se encuentren en proceso de contratación o ejecución a la entrada en vigor de la presente, continuarán rigiéndose conforme a las disposiciones imperantes al momento de su contratación o ejecución.
