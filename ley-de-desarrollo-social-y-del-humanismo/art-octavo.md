@@ -1,0 +1,5 @@
+Artículo Octavo.- Las Dependencias normativas del Poder Ejecutivo del Estado, en el ámbito de sus respectivas competencias, llevarán a cabo de inmediato las acciones que resulten necesarias para el debido cumplimiento del presente Decreto, en plena observancia a las disposiciones legales aplicables.
+El Ejecutivo del Estado dispondrá se publique, circule y se le dé el debido cumplimiento al presente Decreto.
+Dado en el Salón de Sesiones "Sergio Armando Valls Hernández" del Honorable Congreso del Estado Libre y Soberano de Chiapas, en la Ciudad de Tuxtla Gutiérrez, Chiapas, a los 16 días del mes de mayo del año dos mil diecisiete.- D.P.C. Patricia del Carmen Conde Ruíz.- D.S.C. Silvia Lilian Garcés Quiroz.
+De conformidad con la fracción I del artículo 59 de la Constitución Política Local y para su observancia, promulgo el presente Decreto en la Residencia del Poder Ejecutivo del Estado, en la ciudad de Tuxtla Gutiérrez, Chiapas, a los 16 días del mes de Mayo del año Dos Mil Diecisiete.
+Manuel Velasco Coello, Gobernador del Estado de Chiapas.- Juan Carlos Gómez Aranda, Secretario General de Gobierno.- Rúbricas.

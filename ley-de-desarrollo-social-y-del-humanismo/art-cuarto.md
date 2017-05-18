@@ -1,0 +1,1 @@
+Artículo Cuarto.- Los Ayuntamientos, llevarán a cabo las acciones que resulten necesarias para el debido cumplimiento del presente Decreto, en plena observancia a las disposiciones legales y normativas aplicables.

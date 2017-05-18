@@ -1,0 +1,1 @@
+Artículo Sexto.- Los procedimientos y recursos administrativos que actualmente se encuentren en trámite, se seguirán llevando a cabo hasta su total conclusión por las Autoridades y disposiciones legales vigentes, con anterioridad a la entrada en vigor del presente Decreto.

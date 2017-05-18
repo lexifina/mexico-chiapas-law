@@ -1,0 +1,1 @@
+Artículo Quinto.- El Presidente de la Comisión Interinstitucional de Desarrollo Social, deberá convocar a sus miembros dentro de los sesenta días naturales siguientes a la publicación del presente Decreto, para la instalación de la Comisión Interinstitucional.

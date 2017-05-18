@@ -1,0 +1,1 @@
+Artículo Tercero.- Se abroga la Ley de Participación Social para el Estado de Chiapas, publicada en el Periódico Oficial número 207, Tomo III, 2ª Sección, mediante Decreto número 046, de fecha 30 de Diciembre de 2009.
