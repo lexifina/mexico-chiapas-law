@@ -11,7 +11,6 @@ A) EL CÓDIGO PENAL PARA EL ESTADO DE CHIAPAS:
 8. Tráfico de menores de edad y de los que no tengan capacidad para entender el significado del hecho, previsto en el artículo 208, primer párrafo.
 9. Sustracción de menores y los que no tengan capacidad para entender el significado del hecho, previsto en los artículos 223, segundo párrafo y 224.
 10. Asalto, previsto en los artículos 231 y 232.
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE NUMERAL, VÉASE TRANSITORIO ARTÍCULO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.]
 (REFORMADO, P.O. 6 DE JULIO DE 2016)
 11. Violación, previsto en los artículos 233 y 234.
 12. Abuso sexual, previsto en el último párrafo del artículo 242.
@@ -46,7 +45,6 @@ A) EL CÓDIGO PENAL PARA EL ESTADO DE CHIAPAS:
 41. Delitos contra el saneamiento del ambiente y la ecología del estado, previstos y sancionados en los artículos 456, 457, fracción I, II, III, IV, VI, VIII, X y XI, 458, fracciones I, X y XI, y 459.
 42. Operaciones con recursos de procedencia ilícita, previsto y sancionado por el artículo 478.
 43. Usura, previsto y sancionado en los artículos 320 bis, 320 ter, 320 quater y 320 quintus.
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE NUMERAL, VÉASE TRANSITORIO ARTÍCULO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.]
 (ADICIONADO, P.O. 6 DE JULIO DE 2016)
 44. Pederastia, previsto y sancionado en los artículos 235 y 236.
 En su caso, la comisión de los delitos mencionados en grado de tentativa como lo establece este Código.
