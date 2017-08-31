@@ -14,7 +14,8 @@ A) EL CÓDIGO PENAL PARA EL ESTADO DE CHIAPAS:
 (REFORMADO, P.O. 6 DE JULIO DE 2016)
 11. Violación, previsto en los artículos 233 y 234.
 12. Abuso sexual, previsto en el último párrafo del artículo 242.
-13. Robo, previsto en los artículos 270, con relación al 274, 275 y 276, fracciones IV, VII, VIII, IX, X, XII, XIV, XV, XVI y XVII.
+(REFORMADO, P.O. 30 DE AGOSTO DE 2017)
+13. Robo, previsto en los artículos 270, con relación al 274, 275 y fracciones IV, VII, VIII, IX, X, XII, XV, XVI, XVII; y fracciones I y II del penúltimo párrafo del 276.
 14. Delitos previstos y sancionados en los artículos 277, 278, 279, 281, con independencia de que sean ejecutados con violencia y/o agravados.
 15. Encubrimiento por receptación, previsto en el artículo 287.
 16. Comercialización de objetos robados, previsto en el artículo 290.
@@ -33,7 +34,8 @@ A) EL CÓDIGO PENAL PARA EL ESTADO DE CHIAPAS:
 29. Atentados contra la paz y la integridad corporal y patrimonial de la colectividad del Estado, previsto y sancionado en el artículo 369, párrafo primero.
 30. Evasión de presos, previsto y sancionado en el artículo 357, segunda parte del primer párrafo.
 31. Asociación delictuosa, prevista y sancionada en el artículo 370.
-32. Pandillerismo, previsto y sancionado en los artículos 371, 372, 373, 374 y 375.
+(REFORMADO, P.O. 30 DE AGOSTO DE 2017)
+32. Pandillerismo, previsto y sancionado en los artículos 371, 372, 373, 374, 375 y 375 bis.
 33. Ataques a las vías de comunicación, previsto en los artículos 379 al 382, con relación al 383.
 34. Abuso de autoridad, previsto y sancionado en el artículo 420, fracciones VIII, IX y XI.
 35. Delitos cometidos por servidores públicos durante la ejecución de la pena, previsto y sancionado en el artículo 423, fracciones I y III.
