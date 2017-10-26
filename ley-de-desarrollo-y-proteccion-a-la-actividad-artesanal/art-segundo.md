@@ -1,0 +1,1 @@
+Artículo Segundo.- Se abroga la Ley de Fomento a la Actividad Artesanal del Estado de Chiapas, publicada en el Periódico Oficial número 083, Tomo III, mediante el Decreto número 140, de fecha 05 de Marzo de 2008.

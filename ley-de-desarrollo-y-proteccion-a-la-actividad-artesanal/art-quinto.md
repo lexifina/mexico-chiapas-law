@@ -1,0 +1,1 @@
+Artículo Quinto.- El titular de la Secretaría de Economía, deberá someter a consideración y aprobación del Ejecutivo del Estado, el proyecto del reglamento de la presente Ley, en un plazo no mayor a noventa días hábiles siguientes a la publicación de la misma.
