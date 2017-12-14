@@ -1,0 +1,7 @@
+P.O. 13 DE DICIEMBRE DE 2017.
+[N. DE E. TRANSITORIOS DEL "DECRETO NO. 032 POR EL QUE REFORMAN LOS ARTÍCULOS 25, 27, 28, 77 Y 91 DE LA LEY DE BIENES ASEGURADOS, ABANDONADOS Y DECOMISADOS PARA EL ESTADO DE CHIAPAS".]
+Artículo Primero.- El presente Decreto entrara en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+Artículo Segundo.- Se derogan todas las disposiciones que se opongan al presente Decreto.
+Artículo Tercero.- Para la Administración y destino final de los bienes asegurados, abandonados y decomisados, se deberá de atender en primer grado a las disposiciones establecidas en esa materia en el Código Nacional de Procedimientos Penales; con excepción de los asuntos iniciados bajo el sistema penal mixto tradicional, en donde el abandono se resolverá en términos de lo dispuesto en el Código Penal del Estado de Chiapas.
+Artículo Cuarto.- En todo aquello relativo a los procedimientos regulados por este ordenamiento, que no se encuentre previsto en el Código Nacional de Procedimientos Penales, ni esta Ley, se atenderá en forma supletoria a la legislación sustantiva y adjetiva Local en materia Civil.
+Artículo Quinto.- El Titular de la Fiscalía General del Estado, deberá someter a consideración y aprobación del Titular del Poder Ejecutivo del Estado, el proyecto de Reglamento de la presente Ley en un plazo no mayor a 90 días hábiles contados a partir del día siguiente a la publicación del presente Decreto.
