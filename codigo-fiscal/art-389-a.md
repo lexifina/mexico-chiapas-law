@@ -12,5 +12,6 @@ Los ahorros y economías generados como resultado de la aplicación de dichas me
 VI. En materia de subsidios se deberá identificar la población objetivo, el propósito o destino principal y la temporalidad de su otorgamiento. Los mecanismos de distribución, operación y administración de los subsidios, deberán garantizar que los recursos se entreguen a la población objetivo y reduzcan los gastos administrativos del programa correspondiente.
 La información señalada en el párrafo anterior deberá hacerse pública a través de las páginas de internet de los Organismos Públicos.
 VII. Una vez concluida la vigencia del Presupuesto de Egresos, sólo procederá realizar pagos con base en dicho presupuesto, por los conceptos efectivamente devengados en el año que corresponda y que se hubieren registrado en el informe de cuentas por pagar y que integran el pasivo circulante al cierre del ejercicio. En el caso de las Transferencias federales etiquetadas, se estará a lo dispuesto en el artículo 389 de este Código.
+(REFORMADA SU DENOMINACIÓN, P.O. 31 DE DICIEMBRE DE 2017)
 Capítulo VI
-De la Inversión Pública y de la Inversión Pública Productiva
+Del Gasto de Inversión
