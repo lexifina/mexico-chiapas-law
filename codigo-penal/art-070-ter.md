@@ -5,7 +5,8 @@ II. Desocupación inmediata de la persona agresora del domicilio conyugal o de d
 III. Prohibición al probable responsable, de acercarse al domicilio, lugar de trabajo, de estudios, al domicilio de las y los ascendientes o descendientes, así como cualquier otro que frecuente la víctima.
 IV. Reingreso de la víctima al domicilio, una vez salvaguardada su seguridad.
 V. Prohibición de intimidar o molestar a la víctima, al ofendido, familiares o cualquier persona relacionada con ellos.
-VI. Auxilio inmediato por integrantes de instituciones policiales a favor de la víctima, con autorización expresa de ésta, cualquier miembro de su familia o persona autorizada, para el ingreso al domicilio donde se localice o se encuentre la víctima en el momento de solicitarlo.
+(REFORMADA, P.O. 24 DE ENERO DE 2018)
+VI. Auxilio inmediato por integrantes de las instituciones de seguridad pública, para el ingreso al domicilio donde se localice o se encuentre la víctima en el momento de solicitarlo, en el marco de los derechos fundamentales.
 VII. Entrega inmediata de objetos de uso personal y documentos de identidad de la víctima que estuvieran en posesión del probable responsable.
 VIII. Vigilancia en el domicilio de la víctima u ofendido.
 IX. Protección policial de la víctima u ofendido.
