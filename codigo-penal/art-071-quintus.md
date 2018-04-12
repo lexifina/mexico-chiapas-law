@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 11 DE ABRIL DE 2018)
+Artículo 71 Quintus.- Cuando se cometa un delito doloso en contra de algún periodista, persona o instalación con la intención de afectar, limitar o menoscabar el derecho a la información o las libertades de expresión o de imprenta, se aumentará hasta en un tercio la pena establecida para el delito doloso que se haya cometido.
+En el caso anterior, se aumentará la pena hasta en una mitad cuando además el delito sea cometido por un servidor público en ejercicio de sus funciones o la víctima sea mujer y concurran razones de género en la comisión del delito, conforme a lo que establecen las leyes en la materia.
