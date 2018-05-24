@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 23 DE MAYO DE 2018)
+Artículo 25 Sexties.- Los procedimientos de invitación restringida y de adjudicación directa, deberán de legalidad (sic) sujetarse a los principios, objetividad e imparcialidad, transparencia e igualdad de condiciones, así como prever las medidas para que los recursos públicos se administren con eficiencia, eficacia, transparencia y honradez.
+Salvo lo expresamente previsto en este Capítulo, las disposiciones previstas para la licitación pública serán aplicables a los procedimientos de invitación restringida y de adjudicación directa en lo que no se contraponga a los mismos.

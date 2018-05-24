@@ -1,0 +1,9 @@
+(ADICIONADO, P.O. 23 DE MAYO DE 2018)
+Artículo 25 Quater.- Se otorgarán concesiones mediante invitación restringida, en los siguientes supuestos:
+I. No existan opciones suficientes para desarrollar los activos necesarios o para prestar el servicio concesionado, o bien, que en el mercado sólo exista un posible oferente, o se trate de una persona que posea la titularidad exclusiva de patentes, derechos de autor, u otros derechos exclusivos.
+II. Se realice con fines exclusivamente de seguridad o procuración de justicia, o su contratación mediante licitación pública ponga en riesgo la seguridad del Estado o del Municipio de que se trate.
+III. Existan circunstancias que puedan provocar pérdidas o costos adicionales importantes, cuantificables y comprobables.
+IV. Se haya extinguido una concesión otorgada a través de licitación pública, antes de su inicio, en cuyo caso, la concesión podrá otorgarse a la empresa que corresponda al licitante que haya obtenido el segundo o ulteriores lugares, siempre que la diferencia en los costos con la concesión extinguida no sea superior al 10%.
+V. Se realice una licitación pública que haya sido declarada desierta en dos o más ocasiones.
+VI. Se trate de la sustitución de un concesionario, por la actualización de alguna de las causas previstas en el artículo 31 del presente ordenamiento, de una concesión cuya ejecución se encuentre en marcha.
+El Ejecutivo o el Ayuntamiento según se trate, al otorgar la concesión por invitación restringida, deberá emitir dictamen en donde se acredite que la concesión otorgada se encuentra en cualesquiera de los supuestos previstos en el presente artículo, expresando el o los criterios en los que funda su determinación, pudiendo ser éstos economía, eficiencia, imparcialidad u honradez, que permitirán asegurar las mejores condiciones para el Estado o municipio, según se trate.
