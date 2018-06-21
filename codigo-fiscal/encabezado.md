@@ -1,5 +1,4 @@
 CÓDIGO DE LA HACIENDA PÚBLICA PARA EL ESTADO DE CHIAPAS
-[N. DE E. CONTIENE LA FE DE ERRATAS PUBLICADA EN EL PERIÓDICO OFICIAL DEL 14 DE MARZO DE 2018.]
 Código publicado en la Cuarta Sección del Periódico Oficial del Estado de Chiapas, el miércoles 18 de Mayo del 2016.
 DECRETO NÚMERO 212
 Manuel Velasco Coello, Gobernador del Estado de Chiapas, a sus habitantes hace saber: Que la Honorable Sexagésima Sexta Legislatura del mismo, se ha servido dirigir al Ejecutivo a su cargo el siguiente:
