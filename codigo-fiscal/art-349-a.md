@@ -6,6 +6,7 @@ b) El crecimiento real del Producto Interno Bruto señalado en los Criterios Gen
 Se exceptúa del cumplimiento a lo establecido en la presente fracción, el monto erogado por sentencias laborales definitivas emitidas por la autoridad competente.
 Los gastos en servicios personales que sean estrictamente indispensables para la implementación de nuevas leyes federales o reformas a las mismas, podrán autorizarse sin sujetarse al límite establecido en la presente fracción, hasta por el monto que específicamente se requiera para dar cumplimiento a la ley respectiva.
 Adicionalmente, los servicios personales asociados a seguridad pública y al personal médico, paramédico y afín, estarán exentos del cumplimiento de lo dispuesto por esta fracción hasta el año 2020. En ningún caso, la excepción deberá considerar al personal administrativo.
-II. En el proyecto de Presupuesto de Egresos se deberán presentar en una sección específica, las erogaciones correspondientes al gasto en servicios personales, el cual comprende:
+(REFORMADO [N. DE E. ESTE PÁRRAFO], P.O. 31 DE DICIEMBRE DE 2018)
+II. En el Proyecto de Presupuesto de Egresos se deberán presentar en una sección específica, las erogaciones correspondientes al gasto en servicios personales, el cual comprende:
 a) Las remuneraciones de los servidores públicos, desglosando las percepciones ordinarias y extraordinarias, e incluyendo las erogaciones por concepto de obligaciones de carácter fiscal y de seguridad social inherentes a dichas remuneraciones.
 b) Las previsiones salariales y económicas para cubrir los incrementos salariales, la creación de plazas y otras medidas económicas de índole laboral. Dichas previsiones serán incluidas en un capítulo específico del Presupuesto de Egresos.
