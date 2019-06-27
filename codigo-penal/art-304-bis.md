@@ -1,0 +1,9 @@
+(ADICIONADO, P.O. 26 DE JUNIO DE 2019)
+Artículo 304 Bis.- A quien empleando cualquier medio y sin el consentimiento de quien legítimamente deba otorgarlo, se haga pasar por otra persona, física o jurídica, asuma, utilice, usurpe o suplante su identidad, con la finalidad de obtener lucro o producir un daño patrimonial, para sí o para un tercero, se aplicarán de 3 a 6 años de prisión y de 200 a 500 días multa.
+Para los efectos de este capítulo, se entenderá por identidad, todos aquellos datos personales, informes, documentos o imagen pública, que identifican a una persona física o jurídica, que la individualizan ante la sociedad, y que le permite ser identificado o identificable por la colectividad a través de cualquier medio impreso o electrónico.
+Serán equiparables al delito de suplantación de identidad y se impondrán las mismas penas a quien:
+I. Otorgue su consentimiento a otra persona para que asuma, utilice o suplante su identidad, datos personales, informes, documentos o imagen pública con fines ilícitos.
+II. Se valga de la homonimia para suplantar la identidad del sujeto pasivo.
+III. Se aproveche del parecido físico con el sujeto pasivo para suplantar su identidad.
+IV. Mediante el uso de un medio informático, telemático, electrónico, o el uso de una red electrónica o de internet, monte o cargue sitios de internet falsos o simulados, o intercepte datos de envío, para captar información personal, documentos, suplantar identidades o modificar programas automatizados, imágenes o correos electrónicos, con la finalidad de obtener un lucro indebido, o provocar un daño patrimonial, para sí o para un tercero.
+V. Transfiera o posea, sin autorización de quien legítimamente deba otorgarla, datos identificativos de otra persona, con la finalidad de cometer o favorecer la comisión de un ilícito.
