@@ -1,0 +1,6 @@
+P.O. 3 DE JULIO DE 2019.
+[N. DE E. TRANSITORIOS DEL "DECRETO NO. 214 POR EL QUE SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES DEL CÓDIGO PENAL PARA EL ESTADO DE CHIAPAS".]
+Artículo Primero.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial.
+Artículo Segundo.- Se derogan todas las disposiciones de igual o menor jerarquía que se opongan a lo dispuesto en el presente Decreto.
+Artículo Tercero.- La Secretaría de Seguridad y Protección Ciudadana, dispondrá de ciento ochenta días, contados a partir de la entrada en vigor del presente Decreto, para proponer al Titular del Poder Ejecutivo del Estado las modificaciones legales pertinentes, a efecto de asumir o, en su caso, adherirse a la planeación, programación y ejecución del Plan de Reeducación para Personas Generadoras de Violencia, actualmente a cargo de la Secretaría de Salud y/o Instituto de Salud, en cumplimiento a lo dispuesto en el artículo 49, fracción XII de la Ley General de Acceso de las Mujeres a una Vida Libre de Violencia.
+Artículo Cuarto.- Las autoridades correspondientes, en el ámbito de sus respectivas competencias, llevarán a cabo las acciones que resulten necesarias para el debido cumplimiento del presente Decreto, en observancia a las disposiciones aplicables.
