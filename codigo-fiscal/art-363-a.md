@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 31 DE DICIEMBRE DE 2019)
+Artículo 363 A.- Todo recurso financiero que la Tesorería Única deposite a las cuentas bancarias de los Organismos Públicos y que no cuenten con la autorización presupuestal de la Secretaría, estos deberán tramitar de manera inmediata dicha autorización. En caso que el Organismo Público no efectúe este proceso, la Secretaría con el fin de mantener el balance presupuestario sostenible, podrá emitir la autorización del monto total transferido, registrándose en una partida de gasto transitoria.
+Una vez concluido dicho proceso, oficialmente se le comunicará a los Organismos Públicos para que soliciten la liberación de su presupuesto, quedando bajo la responsabilidad de estos el ejercicio, erogación y comprobación del gasto.

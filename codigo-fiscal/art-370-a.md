@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 31 DE DICIEMBRE DE 2019)
+Artículo 370 A.- Los Organismos Públicos podrán efectuar todos los trámites necesarios para realizar contrataciones de adquisiciones, arrendamientos, servicios y obra pública, con el objeto de que los recursos se ejerzan oportunamente a partir del inicio del ejercicio fiscal correspondiente.
+La Secretaría, de manera especial a petición del Organismo Público, con base en el Anteproyecto podrá garantizar el presupuesto para convocar, adjudicar, y en su caso, formalizar los contratos, cuya vigencia inicie en el ejercicio fiscal siguiente de aquel en el que se solicite.
+Los contratos estarán sujetos a la disponibilidad presupuestaria del año en el que se prevé el inicio de su vigencia, por lo que, sus efectos estarán condicionados a la existencia de los recursos presupuestarios respectivos.
+Los Organismos Públicos podrán obtener la autorización a que se refiere el presente artículo, conforme al procedimiento que establezca el Reglamento del Código.
