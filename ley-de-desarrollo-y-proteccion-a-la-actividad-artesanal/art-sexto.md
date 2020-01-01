@@ -3,3 +3,4 @@ El Ejecutivo del Estado dispondrá se publique, circule y se le dé el debido cu
 Dado en el Salón de Sesiones Sergio Armando Valls Hernández, del Honorable Congreso del Estado Libre y Soberano de Chiapas, en la Ciudad de Tuxtla Gutiérrez, Chiapas a los 03 días del mes de Octubre del año dos mil diecisiete.- D. P. C. Williams Oswaldo Ochoa Gallegos.- D. S. C. Alejandra Cruz Toledo Zebadúa.- Rúbricas.
 De conformidad con la fracción I del artículo 59 de la Constitución Política Local y para su observancia, promulgo el presente Decreto en la Residencia del Poder Ejecutivo del Estado, en la Ciudad de Tuxtla Gutiérrez, Chiapas, a los 23 días del mes de Octubre del año Dos Mil Diecisiete.
 Manuel Velasco Coello, Gobernador del Estado de Chiapas.- Juan Carlos Gómez Aranda, Secretario General de Gobierno.- Rúbricas.
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
