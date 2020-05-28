@@ -1,0 +1,1 @@
+Artículo Tercero.- Los procedimientos de Entrega Recepción iniciados con anterioridad a la entrada en vigor de la presente Ley, se regirán bajo los parámetros establecidos en la Ley que se encontraba vigente al momento en que se actualizaron los hechos.

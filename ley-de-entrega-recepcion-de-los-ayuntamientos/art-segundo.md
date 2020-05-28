@@ -1,0 +1,1 @@
+Artículo Segundo.- Se abroga la Ley de Entrega y Recepción de los Ayuntamientos del Estado de Chiapas, publicada en el Periódico Oficial Número 379, Tomo III, de fecha 18 de julio de 2012, mediante Decreto 276; y se derogan todas las disposiciones que se opongan a lo establecido en el presente Decreto.
