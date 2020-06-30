@@ -1,0 +1,8 @@
+Transitorios
+Artículo Primero.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial.
+Artículo Segundo.- Se derogan todas las disposiciones legales que contravengan o se opongan al presente Decreto.
+Artículo Tercero.- Los medios de impugnación y procedimientos iniciados con anterioridad a la entrada en vigor de la presente Ley de Medios de Impugnación en Materia Electoral del Estado de Chiapas, continuarán tramitándose hasta su conclusión conforme a las disposiciones con las que fueron iniciados.
+Artículo Cuarto.- El Consejo General del Instituto de Elecciones y Participación Ciudadana y el Pleno del Tribunal Electoral del Estado de Chiapas, dictarán en lo concerniente y conforme a su competencia los acuerdos necesarios para hacer efectivas las disposiciones del presente Decreto.
+El Ejecutivo del Estado dispondrá se publique, circule y se dé el debido cumplimiento al presente Decreto.
+Dado en el Honorable Congreso del Estado Libre y Soberano de Chiapas, en la Ciudad de Tuxtla Gutiérrez, Chiapas, a los 26 días del mes de junio del año dos mil veinte - D. P. C. ROSA ELIZABETH BONILLA HIDALGO. - D. S. C. SILVIA TORREBLANCA ALFARO.
+De conformidad con la fracción I del artículo 59 de la Constitución Política Local y para su observancia, promulgo el presente Decreto en la Residencia del Poder Ejecutivo del Estado, en la Ciudad de Tuxtla Gutiérrez, Chiapas; a los 29 días del mes de junio del año dos mil veinte. - Rutilio Escandón Cadenas, Gobernador del Estado de Chiapas. - Ismael Brito Mazariegos, Secretario General de Gobierno. - Rúbricas.
