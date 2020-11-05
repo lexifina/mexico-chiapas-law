@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 4 DE NOVIEMBRE DE 2020)
+Artículo 390 Bis.- A quien, por sí o mediante interpósita persona, realice el servicio de transporte público en cualquiera de sus modalidades sin contar con la concesión o el permiso expedido por la autoridad competente, o por realizarlo con unidades vehiculares no registradas o distintas a las registradas ante la autoridad de transporte del Estado, se le impondrá pena privativa de libertad de tres a siete años y multa de quinientas a mil veces la Unidad de Medida y Actualización vigente.
