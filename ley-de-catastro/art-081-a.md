@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 9 DE DICIEMBRE DE 2020)
+Artículo 81 A.- Se consideran infracciones los actos que por dolo o ineficiencia sean cometidos por autoridades catastrales, servidores públicos municipales, así como las personas físicas y morales, que deriven en la alteración o falsificación de datos que caracterizan a un inmueble por su identificación, avalúo o demás actividades catastrales que imposibiliten el cumplimiento de la presente Ley y de su Reglamento.

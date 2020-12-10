@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 9 DE DICIEMBRE DE 2020)
+Artículo 51 A.- La Secretaría, a través de la Dirección, deberá expedir y revalidar cuando sea procedente, el registro de perito topógrafo y/o geomático catastral; así como controlar y verificar la veracidad de los datos asentados en los levantamientos topográficos y/o geodésicos; evaluar el desempeño de los peritos, independientemente de la fecha de elaboración del levantamiento; y en su caso aplicar las sanciones procedentes, suspender o cancelar el registro, conforme a lo dispuesto en esta Ley y su Reglamento.
