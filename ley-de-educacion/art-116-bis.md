@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 23 DE JUNIO DE 2021)
+Artículo 116 Bis.- La autoridad educativa estatal promoverá la igualdad de oportunidades y la no discriminación, promoviendo contenidos no estereotipados de las mujeres y de los hombres en todo el proceso educativo, prohibiendo en las escuelas de educación básica y media superior, la realización de concursos, certámenes, elecciones y/o cualquier otra forma de competencia en la que se evalúe, de forma integral o parcial, y en base a estereotipos sexistas, la belleza o la apariencia física de niñas y/o adolescentes.
