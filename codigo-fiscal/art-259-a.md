@@ -5,6 +5,6 @@ En caso de contribuyentes que cuenten con dos o más concesiones de exploración
 Colocar en lugar visible de sus establecimientos la licencia de inscripción expedida por la Secretaría.
 Presentar los avisos, documentos, datos e informes que le sean solicitados por las autoridades fiscales en relación con este impuesto, dentro de los plazos y lugares señalados al efecto.
 Permitir la práctica de visitas de inspección y auditoria, así como proporcionar a las personas designadas para ello, todos los elementos necesarios para el desempeño de sus funciones.
-(ADICIONADO, P.O. 31 DE DICIEMBRE DE 2021)
+(DEROGADO CON LOS ARTÍCULOS QUE LO INTEGRAN, P.O. 26 DE ENERO DE 2022)
 Capítulo VI
 Impuesto Cedular a los Ingresos por Arrendamiento y en General por Otorgar el Uso o Goce Temporal de Bienes Inmuebles

@@ -1,3 +1,1 @@
-(ADICIONADO, P.O. 31 DE DICIEMBRE DE 2021)
-Artículo 260 F.- En las operaciones de fideicomiso por las que se otorgue el uso o goce temporal de bienes inmuebles, se considera que los rendimientos son ingresos del fideicomitente aun cuando el fideicomisario sea una persona distinta, a excepción de los fideicomisos irrevocables en los cuales el fideicomitente no tenga derecho a readquirir del fiduciario el bien inmueble, en cuyo caso se considera que los rendimientos son ingresos del fideicomisario desde el momento en que el fideicomitente pierda el derecho a readquirir el bien inmueble.
-La institución fiduciaria efectuará los pagos de este impuesto por cuenta de aquel a quien corresponda el rendimiento en los términos del párrafo anterior, mediante declaración bimestral que presentará conforme al artículo 260 D.
+Artículo 260 F.- (DEROGADO, P.O. 26 DE ENERO DE 2022)
