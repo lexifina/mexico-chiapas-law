@@ -14,5 +14,6 @@ XI. Autorizar con su firma los avances de (sic) cuenta mensual y toda documentac
 XII. Presentar en los términos de la ley de la materia las declaraciones de su situación patrimonial;
 XIII. Dar cumplimiento a lo establecido a la Ley que fija las Bases para la Entrega-Recepción para los Ayuntamientos del Estado de Chiapas, en relación con la materia del encargo;
 XIV. Las demás que les señalen esta Ley, sus reglamentos y demás disposiciones legales aplicables.
-Título Quinto
-De las Responsabilidades de los Servidores Públicos Municipales
+(ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, P.O. 27 DE ABRIL DE 2022)
+Capítulo XVI
+De la Instancia Municipal de las Mujeres
