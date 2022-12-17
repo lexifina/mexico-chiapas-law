@@ -5,7 +5,8 @@ Con base a lo establecido en la Ley de Coordinación Fiscal, Ley Federal de Pres
 I. Los Organismos Públicos dentro de los veinticinco días naturales posteriores a la terminación de cada trimestre del ejercicio fiscal, a través del Sistema de Reporte de Recursos Federales Transferidos, deben informar el ejercicio de los recursos federales que les sean transferidos, debiendo cumplir con lo siguiente:
 a) Capturar, validar y enviar su información a más tardar a los quince días naturales posteriores a la terminación de cada trimestre; para tal efecto solicitarán la clave de acceso del Sistema.
 b) La información que se registre en el Sistema, debe contener los rubros que señala el artículo 72 de la Ley General de Contabilidad Gubernamental.
-c) Atender las observaciones de la Secretaría, dentro de los cinco días naturales posteriores al plazo señalado en el inciso anterior, para efectos de asegurar la calidad de la información.
+(REFORMADO, P.O. 14 DE DICIEMBRE DE 2022)
+c) Atender las observaciones de la Secretaría, dentro de los cinco días naturales posteriores al plazo señalado en el inciso a) de esta fracción, para efectos de asegurar la calidad de la información.
 d) Atender las observaciones de las dependencias y entidades federales, debiendo ser subsanadas a más tardar dentro de los cinco días naturales posteriores a los veinte días naturales después de terminado el trimestre que corresponda.
 e) Enviar informes definitivos sobre el ejercicio, destino y resultados y, en su caso, reintegros de los recursos federales que les fueron transferidos durante el ejercicio fiscal, en los plazos que determine la Secretaría de Hacienda y Crédito Público.
 f) Resolver lo que corresponda en casos de observación o recomendación de las autoridades de fiscalización y control.
