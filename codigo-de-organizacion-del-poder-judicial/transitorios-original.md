@@ -13,3 +13,4 @@ Artículo Décimo. El Consejo de la Judicatura del Poder Judicial del Estado, ll
 El Ejecutivo del Estado, dispondrá se publique, circule y se le dé el debido cumplimiento.
 Dado en el Honorable Congreso del Estado Libre y Soberano de Chiapas, en la Ciudad de Tuxtla Gutiérrez, Chiapas, a los 18 días del mes de Agosto del año dos mil veinte. - D.P. C. ROSA ELIZABETH BONILLA HIDALGO. - D.S. C. SILVIA TORREBLANCA ALFARO. - Rúbricas.
 De conformidad con la fracción I del artículo 59 de la Constitución Política Local y para su observancia, promulgo el presente Decreto en la Residencia del Poder Ejecutivo del Estado, en la Ciudad de Tuxtla Gutiérrez, Chiapas; a los 19 días del mes de agosto del año dos mil veinte. - Rutilio Escandón Cadenas, Gobernador del Estado de Chiapas. - Ismael Brito Mazariegos, Secretario General de Gobierno. - Rúbricas.
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
