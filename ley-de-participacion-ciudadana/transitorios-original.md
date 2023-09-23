@@ -1,0 +1,8 @@
+Transitorios
+Artículo Primero.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial.
+Artículo Segundo.- Se derogan todas las disposiciones legales que contravengan o se opongan al presente Decreto.
+Artículo Tercero.- Los procesos y procedimientos iniciados con anterioridad a la entrada en vigor de la presente Ley de Participación Ciudadana del Estado de Chiapas, continuarán tramitándose hasta su conclusión conforme a las disposiciones con las que fueron iniciados.
+Artículo Cuarto.- El Consejo General del Instituto de Elecciones y Participación Ciudadana, dictará los acuerdos necesarios para hacer efectivas las disposiciones del presente Decreto y deberá expedir las disposiciones legales y demás normatividad que deriven del mismo, conforme a lo previsto en ésta Ley en un plazo no mayor a noventa días posteriores a la entrada en vigor.
+El Ejecutivo del Estado dispondrá se publique, circule y se dé el debido cumplimiento al presente Decreto.
+Dado en el Salón de Sesiones "Sergio Armando Valls Hernández" del Honorable Congreso del Estado Libre y Soberano de Chiapas, en la Ciudad de Tuxtla Gutiérrez, Chiapas, a los 21 días del mes de septiembre del año dos mil veintitrés. D.P. C. SONIA CATALINA ÁLVAREZ. D.S.C. FLOR DE MARÍA ESPONDA TORRES. Rúbricas.
+De conformidad con la fracción I del artículo 59 de la Constitución Política Local y para su observancia, promulgo el presente Decreto en la Residencia del Poder Ejecutivo del Estado, en la Ciudad de Tuxtla Gutiérrez, Chiapas; a los veintidós días del mes de Septiembre del año dos mil veintitrés.- Rutilio Escandón Cadenas, Gobernador del Estado de Chiapas.- Victoria Cecilia Flores Pérez, Secretaria General de Gobierno.- Rúbricas.
