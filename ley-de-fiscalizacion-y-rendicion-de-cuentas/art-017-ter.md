@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 6 DE MARZO DE 2024)
+Artículo 17 Ter.- La Auditoría Superior del Estado contará con un Buzón Digital, a través del cual, de manera enunciativa más no limitativa, realizará la notificación de solicitudes de información, órdenes de Auditoría, requerimientos, actas de Auditoría e informes, así como, en su caso, cualquier acto que se emita, los cuales constarán en Documentos Electrónicos.
+Por su parte, las Entidades Fiscalizadas presentarán solicitudes y/o darán atención a requerimientos de información de la Auditoría Superior del Estado, a través de Documentos Electrónicos certificados enviados mediante el Buzón Digital, de igual forma se harán constar los actos que se realicen dentro del proceso de Fiscalización Superior.
+Los procedimientos a que se refieren los párrafos anteriores se harán constar en Expedientes Digitales.

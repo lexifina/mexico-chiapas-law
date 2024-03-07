@@ -1,0 +1,5 @@
+P.O. 6 DE MARZO DE 2024.
+[N. DE E. TRANSITORIOS DEL "DECRETO NO. 260 DECRETO POR EL QUE SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES DE LA LEY DE DESARROLLO CONSTITUCIONAL PARA LA IGUALDAD DE GÉNERO Y ACCESO A UNA VIDA LIBRE DE VIOLENCIA PARA LAS MUJERES; DEL CÓDIGO CIVIL PARA EL ESTADO DE CHIAPAS Y DEL CÓDIGO PENAL PARA EL ESTADO DE CHIAPAS, EN MATERIA DE VIOLENCIA A TRAVÉS DE INTERPÓSITA PERSONA".]
+Artículo Primero.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial.
+Artículo Segundo.- Se derogan todas las disposiciones de igual o menor jerarquía que se opongan a lo dispuesto en el presente Decreto.
+Artículo Tercero.- Cualquier erogación que se genere con motivo a la entrada en vigor del presente Decreto, será cubierta de conformidad con el presupuesto autorizado a las Dependencias y Entidades de la Administración Pública Estatal, el Poder Judicial y Órganos Autónomos responsables de la ejecución del gasto público, para el ejercicio fiscal correspondiente.

@@ -1,15 +1,11 @@
-(ADICIONADO, P.O. 4 DE MAYO DE 2020)
-Artículo 65 Bis.- El informe específico de auditoría contendrá como mínimo lo siguiente:
-I. Denuncia.
-II. Actos de Investigación.
-III. Dictamen Técnico.
-IV. Orden de Auditoría.
-V. Antecedentes.
-VI. Objetivos.
-VII. Periodo de Investigación.
-VIII. Procedimiento.
-IX. Análisis.
-X. Resultados.
-XI. Calificación.
-XII. Nombre de los Presuntos Implicados.
-XIII. Nombre del Personal Investigador.
+(REFORMADO, P.O. 6 DE MARZO DE 2024)
+Artículo 65 Bis.- El informe específico de Auditoría contendrá como mínimo lo siguiente:
+I. Antecedentes que incluyan las denuncias que dieron origen a la investigación.
+II. Actos de investigación previos a la emisión de dictamen técnico jurídico.
+III. Dictamen Técnico Jurídico.
+IV. Autorización de Auditoría y emisión de la Orden respectiva.
+V. Objetivo.
+VI. Periodo de ejecución de Auditoría específica.
+VII. Procedimientos de Auditoría especifica.
+VIII. Análisis y Resultados.
+IX. Nombre del personal que participó en la Auditoría.

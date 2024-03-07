@@ -1,3 +1,4 @@
+[N. DE E. PARA CONSULTAR LA VERSIÓN CORREGIDA DE ESTE ORDENAMIENTO, DE CONFORMIDAD CON LAS FE DE ERRATAS PUBLICADAS LOS DÍAS 7 Y 13 DE MARZO DE 2024 EN EL P.O. DEL ESTADO DE CHIAPAS, SE RECOMIENDA ACUDIR AL TEXTO QUE SE VISUALIZA DENTRO DE LA CRONOLOGÍA CORRESPONDIENTE A DICHA FECHA, EN EL ÍNDICE RESPECTIVO DE SU HISTORIA LEGISLATIVA.
 LEY DE FISCALIZACIÓN Y RENDICIÓN DE CUENTAS DEL ESTADO DE CHIAPAS
 Ley publicada en la Segunda Sección del Periódico Oficial del Estado Libre y Soberano de Chiapas, el miércoles 1 de febrero de 2017.
 Manuel Velasco Coello, Gobernador del Estado de Chiapas, a sus habitantes hace saber: Que la Honorable Sexagésima Sexta Legislatura del mismo, se ha servido dirigir al Ejecutivo a su cargo el siguiente:
