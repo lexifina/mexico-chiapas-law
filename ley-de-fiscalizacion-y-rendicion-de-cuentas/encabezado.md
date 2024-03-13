@@ -1,5 +1,5 @@
 LEY DE FISCALIZACIÓN Y RENDICIÓN DE CUENTAS DEL ESTADO DE CHIAPAS
-[N. DE E. LA FE DE ERRATAS PUBLICADA EN EL P.O. EL 7 DE MARZO DE 2024 NO APLICA AL ARTICULADO DEL DECRETO 261 PUBLICADO EN EL P.O. DE 6 DE MARZO DE 2024.]
+[N. DE E. CONTIENE LA FE DE ERRATAS PUBLICADA EN EL PERIÓDICO OFICIAL DEL 13 DE MARZO DE 2024.]
 Ley publicada en la Segunda Sección del Periódico Oficial del Estado Libre y Soberano de Chiapas, el miércoles 1 de febrero de 2017.
 Manuel Velasco Coello, Gobernador del Estado de Chiapas, a sus habitantes hace saber: Que la Honorable Sexagésima Sexta Legislatura del mismo, se ha servido dirigir al Ejecutivo a su cargo el siguiente:
 Decreto Número 132
