@@ -5,7 +5,7 @@ Manuel Velasco Coello, Gobernador del Estado de Chiapas, a sus habitantes hace s
 DECRETO NÚMERO 212
 La Honorable Sexagésima Sexta Legislatura Constitucional del Estado Libre y Soberano de Chiapas, en uso de las facultades que le concede la Constitución Política Local; y
 C O N S I D E R A N D O
-[…]
+[...]
 Por las consideraciones antes expuestas, el Honorable Congreso del Estado de Chiapas, ha tenido a bien emitir el siguiente Decreto de:
 Código de la Hacienda Pública para el Estado de Chiapas
 Libro Primero
