@@ -1,6 +1,5 @@
 [N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ORDENAMIENTO Y SUS DECRETOS DE MODIFICACIONES, SE SUGIERE CONSULTAR LOS ARTÍCULOS TRANSITORIOS CORRESPONDIENTES.]
 CÓDIGO PENAL PARA EL ESTADO DE CHIAPAS
-[N. DE E. LA FE DE ERRATAS PUBLICADA EN EL P.O. EL 7 DE MARZO DE 2024 NO APLICA AL ARTICULADO DEL DECRETO 260 PUBLICADO EN EL P.O. DE 6 DE MARZO DE 2024.]
 Código publicado en la Tercera Sección del Periódico Oficial del Estado de Chiapas, el miércoles 14 de marzo de 2007.
 Juan Sabines Guerrero, Gobernador Constitucional del Estado Libre y Soberano de Chiapas, a sus habitantes hace saber: Que la Honorable Sexagésima Segunda Legislatura del mismo, se ha servido dirigir al Ejecutivo a su cargo el siguiente:
 Decreto Número 139
