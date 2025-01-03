@@ -1,2 +1,2 @@
-(REFORMADO, P.O. 15 DE DICIEMBRE DE 2023)
-Artículo 342 A.- El Presupuesto de Egresos deberá registrarse a nivel de Proyecto, desglosándose a nivel de partida específica de gasto acorde a la aplicación de todos los gastos en materia de Servicios Personales, Materiales y Suministros, Servicios Generales, y todos aquellos recursos asociados al cumplimiento de su operatividad y función, así como de sus objetivos, indicadores y metas.
+(REFORMADO, P.O. 31 DE DICIEMBRE DE 2024)
+Artículo 342 A.- El Presupuesto de Egresos deberá registrarse a nivel de Proyecto, desglosándose a nivel de partida específica de gasto acorde a la aplicación de todos los gastos en materia de Servicios Personales, Materiales y Suministros, Servicios Generales, y todos aquellos recursos asociados al cumplimiento de su operatividad y función, así como de sus compromisos plurianuales, objetivos, indicadores y metas.
