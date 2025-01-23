@@ -1,6 +1,13 @@
-LEY DE EXPROPIACION POR CAUSA DE UTILIDAD PUBLICA
-Ley publicada en el Periódico Oficial del Estado de Nuevo León, el miércoles 14 de diciembre de 1938.
-ANACLETO GUERRERO, GOBERNADOR CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE NUEVO LEON, A LOS HABITANTES DEL MISMO, SABED:
-QUE LA H. XLVII LEGISLATURA CONSTITUCIONAL DEL ESTADO REPRESENTANDO AL PUEBLO DE NUEVO LEON, HA TENIDO A BIEN EXPEDIR EL SIGUIENTE DECRETO:
-N U M E R O 41.
-LEY DE EXPROPIACION POR CAUSA DE UTILIDAD PUBLICA.
+LEY DE MOVILIDAD Y TRANSPORTE DEL ESTADO DE CHIAPAS
+Ley publicada en el Periódico Oficial del Estado de Chiapas, el miércoles 28 de octubre de 2020.
+Rutilio Escandón Cadenas, Gobernador del Estado de Chiapas, a sus habitantes hace saber: Que la Honorable Sexagésima Séptima Legislatura del mismo, se ha servido dirigir al Ejecutivo a su cargo el siguiente:
+DECRETO NÚMERO 014
+La Honorable Sexagésima Séptima Legislatura Constitucional del Estado Libre y Soberano de Chiapas, en uso de las facultades que le concede la Constitución Política Local; y
+C O N S I D E R A N D O
+[...]
+Por las consideraciones antes expuestas, el Honorable Congreso del Estado de Chiapas, ha tenido a bien emitir el siguiente decreto de:
+Ley de Movilidad y Transporte del Estado de Chiapas
+Título Primero
+Disposiciones Generales
+Capítulo I
+Del Objeto de la Ley
