@@ -1,0 +1,6 @@
+P.O. 13 DE FEBRERO DE 2025.
+[N. DE E. TRANSITORIOS DEL "DECRETO NO. 205 POR EL QUE SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES DE LA LEY ORGÁNICA DE LA FISCALÍA GENERAL DEL ESTADO DE CHIAPAS; DE LA LEY DEL SISTEMA ESTATAL DE SEGURIDAD PÚBLICA, DE LA LEY QUE ESTABLECE LAS BASES DE OPERACIÓN DE LA SECRETARÍA DE SEGURIDAD DEL PUEBLO DEL ESTADO DE CHIAPAS Y DE LA LEY DE BIENES ASEGURADOS, ABANDONADOS Y DECOMISADOS PARA EL ESTADO DE CHIAPAS".]
+Artículo Primero.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial.
+Artículo Segundo.- Se derogan todas las disposiciones de igual o menor jerarquía que se opongan a lo dispuesto en el presente Decreto.
+Artículo Tercero.- La persona titular de la Secretaría de Seguridad del Pueblo, deberá someter a consideración de la persona Titular del Poder Ejecutivo, en un plazo no mayor a noventa días hábiles, contados a partir de la entrada en vigor del presente Decreto, las adecuaciones normativas requeridas, para su aprobación, expedición y publicación correspondiente.
+Artículo Cuarto.- Las Dependencias normativas del Poder Ejecutivo del Estado, en el ámbito de sus respectivas competencias, a la entrada en vigor del presente Decreto, realizarán de inmediato las acciones necesarias para su cumplimiento.
