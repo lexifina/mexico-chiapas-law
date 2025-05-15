@@ -1,7 +1,3 @@
-(NOTA: EL 27 DE ABRIL DE 2020, EL PLENO DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN, EN LOS APARTADOS III Y IV, ASÍ COMO EN EL RESOLUTIVO SEGUNDO DE LA SENTENCIA DICTADA AL RESOLVER LA ACCIÓN DE INCONSTITUCIONALIDAD 33/2018, DECLARÓ LA INVALIDEZ DE ESTE ARTÍCULO, LA CUAL SURTIÓ EFECTOS RETROACTIVOS AL 25 DE ENERO DE 2018, FECHA EN LA QUE ENTRÓ EN VIGOR EL DECRETO NÚMERO 042, DE ACUERDO A LAS CONSTANCIAS QUE OBRAN EN LA SECRETARÍA GENERAL DE ACUERDOS DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN. DICHA SENTENCIA PUEDE SER CONSULTADA EN LA DIRECCIÓN ELECTRÓNICA http://www2.scjn.gob.mx/).
-(ADICIONADO, P.O. 24 DE ENERO DE 2018)
-Artículo 226 Ter.- La privación de la libertad con el propósito de realizar un acto sexual se perseguirá por querella de la parte ofendida.
-Título Sexto
-Delitos Contra la Paz y la Seguridad de las Personas
-Capítulo I
-Amenazas
+(ADICIONADO [N. DE E. REFORMADO], P.O. 14 DE MAYO DE 2025)
+Artículo 226 Ter.- Comete el delito de retención de menores cualquiera de los ascendientes, parientes por consanguinidad o afinidad hasta el segundo grado que teniendo compartida la custodia o convivencia de los menores, sin causa justificada se resista o se niegue a devolverlos al hogar en que habiten transitoria o permanentemente.
+Sólo se procederá a petición de parte ofendida.

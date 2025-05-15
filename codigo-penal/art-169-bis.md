@@ -1,0 +1,7 @@
+(ADICIONADO, P.O. 14 DE MAYO DE 2025)
+Artículo 169 Bis.- A quien por sí o por interpósita persona cause a otra daño en la integridad física o en la salud, utilizando para ello cualquier tipo de gas, compuesto químico, ácido, álcalis, sustancias químicas, corrosivas, cáusticas, irritantes, tóxicas, inflamables, explosivas, reactivas, líquidos a altas temperaturas o cualquier otra sustancia que por sí misma o en las condiciones utilizadas, provoque lesiones ya sean internas, externas o ambas, sin importar la temporalidad de estas, se le impondrá de 12 a 20 años de prisión y multa de quinientas a ochocientas veces la unidad de medida y actualización vigente.
+La pena aumentará en una mitad en los siguientes casos:
+I. Cuando cause deformidad en el rostro, pérdida parcial o total del oído, vista, olfato, gusto, tacto, habla o incapacite de manera permanente para realizar actividades habituales o laborales como cualquier persona, cause alteración o daño en el aparato genital o en las funciones del ejercicio de la sexualidad.
+II. Cuando afecte, dañe, entorpezca o debilite de manera permanentemente una extremidad o cualquier otro órgano.
+III. Cuando la víctima sea un niño, niña, o adolescente, o una persona con discapacidad.
+IV. Cuando la víctima sea una mujer trans o una persona cuya identidad o expresión de género, real o percibida, se encuentre dentro del espectro femenino de género.
