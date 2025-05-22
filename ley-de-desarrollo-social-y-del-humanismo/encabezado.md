@@ -1,4 +1,4 @@
-LEY DE DESARROLLO SOCIAL DEL ESTADO DE CHIAPAS
+LEY DE DESARROLLO SOCIAL Y DEL HUMANISMO DEL ESTADO DE CHIAPAS
 Ley publicada en la Tercera Sección del Número 295 del Periódico Oficial del Estado de Chiapas, el miércoles 17 de mayo de 2017.
 Secretaría General de Gobierno
 Subsecretaría de Asuntos Jurídicos
@@ -8,9 +8,10 @@ Manuel Velasco Coello, Gobernador del Estado de Chiapas, a sus habitantes hace s
 DECRETO NÚMERO 177
 La Honorable Sexagésima Sexta Legislatura Constitucional del Estado Libre y Soberano de Chiapas, en uso de las facultades que le concede la Constitución Política Local; y
 C O N S I D E R A N D O
-[…]
+[...]
 Por las anteriores consideraciones este Honorable Congreso del Estado, ha tenido a bien emitir el siguiente Decreto de:
-LEY DE DESARROLLO SOCIAL DEL ESTADO DE CHIAPAS
+(REFORMADA SU DENOMINACIÓN, P.O. 21 DE MAYO DE 2025)
+LEY DE DESARROLLO SOCIAL Y DEL HUMANISMO DEL ESTADO DE CHIAPAS
 Título Primero
 Disposiciones Generales
 Capítulo Único
