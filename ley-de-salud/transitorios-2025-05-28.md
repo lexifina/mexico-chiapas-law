@@ -1,0 +1,7 @@
+P.O. 28 DE MAYO DE 2025.
+[N. DE E. TRANSITORIOS DEL "DECRETO NO. 257 POR EL QUE SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES A LA LEY DE SALUD DEL ESTADO DE CHIAPAS Y A LA LEY DEL SERVICIO CIVIL DEL ESTADO Y LOS MUNICIPIOS DE CHIAPAS".]
+Artículo Primero.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial.
+Artículo Segundo.- Se derogan todas las disposiciones de igual o menor jerarquía que se opongan a lo dispuesto en el presente Decreto.
+Artículo Tercero.- En un plazo máximo de 180 días naturales a partir de la entrada en vigor del presente decreto, las autoridades de salud deberán desarrollar programas en materia de muerte gestacional, perinatal y neonatal, así como los protocolos necesarios para que los bancos de leche puedan recibir leche humana de mujeres en período de lactancia que tengan excedente, incluyendo aquellas que hayan experimentado pérdida gestacional, perinatal o neonatal.
+Artículo Cuarto.- Dentro de los 180 días naturales posteriores a la entrada en vigor del presente decreto, la Secretaría de Salud del Estado de Chiapas coordinará las actividades de las dependencias y entidades del sector salud para instrumentar y operar acciones en materia de atención a la muerte gestacional, perinatal y neonatal.
+Artículo Quinto.- Las erogaciones derivadas de la entrada en vigor del presente decreto se cubrirán con cargo al presupuesto autorizado para los ejecutores del gasto responsables, dentro del ejercicio fiscal vigente y los subsecuentes.
