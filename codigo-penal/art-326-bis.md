@@ -9,5 +9,6 @@ c) Cuando la persona autora emplee violencia física, psicológica o moral en co
 (NOTA: EL 23 DE FEBRERO DE 2026, EL PLENO DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN, EN EL RESOLUTIVO TERCERO DE LA SENTENCIA DICTADA AL RESOLVER LA ACCIÓN DE INCONSTITUCIONALIDAD 79/2025, DECLARÓ LA INVALIDEZ DE LA PORCIÓN NORMATIVA DEL PENÚLTIMO PÁRRAFO DE ESTE ARTÍCULO INDICADA CON MAYÚSCULAS, LA CUAL SURTIÓ EFECTOS RETROACTIVOS AL 19 DE JUNIO DE 2025, FECHA EN LA QUE ENTRÓ EN VIGOR EL DECRETO NÚMERO 265, DE ACUERDO A LAS CONSTANCIAS QUE OBRAN EN LA SECRETARÍA GENERAL DE ACUERDOS DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN. DICHA SENTENCIA PUEDE SER CONSULTADA EN LA DIRECCIÓN ELECTRÓNICA https://www.scjn.gob.mx/).
 En los casos de los incisos a) y b), además de las sanciones señaladas, se castigará con destitución e inhabilitación para desempeñar el cargo o comisión o cualquier otro de carácter público O SIMILAR, hasta por un tiempo igual a la pena impuesta.
 Este delito se perseguirá de oficio.
+(REFORMADA SU DENOMINACIÓN, P.O. 18 DE JUNIO DE 2025)
 Capítulo III
-Corrupción de Menores e Incapaces
+Corrupción de Personas Menores de Dieciocho Años de Edad e Incapaces
