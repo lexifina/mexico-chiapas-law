@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 18 DE JUNIO DE 2025)
+Artículo 105 Bis.- Se considera Transporte de pasajeros privado especializado con chofer, al servicio que conecta a usuarios que demandan servicio de transporte con conductores privados que ofrecen dicho servicio mediante el uso de las aplicaciones o plataformas tecnológicas y/o informáticas. Este concepto incluye asimismo el servicio de entregas a domicilio y de transporte privado de mercaderías.
+El pago por la prestación de este servicio de transporte queda sujeto en los términos del Reglamento y en las disposiciones y/o lineamientos que para el efecto emita la Secretaría.
