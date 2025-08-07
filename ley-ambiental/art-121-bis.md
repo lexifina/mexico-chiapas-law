@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 6 DE AGOSTO DE 2025)
+Artículo 121 Bis.- En el establecimiento, administración y manejo de las áreas naturales protegidas, la Secretaría promoverá la participación de sus habitantes, propietarios o poseedores, pueblos y comunidades indígenas y afromexicanas y de organizaciones sociales, públicas y privadas, con objeto de propiciar el desarrollo integral de las comunidades y asegurar la protección y preservación de los ecosistemas y su biodiversidad.

@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 6 DE AGOSTO DE 2025)
+Artículo 14 Ter.- Los Municipios integrarán un Comité Ecológico Municipal, para promover la participación de sus habitantes, propietarios y poseedores, organizaciones sociales, públicas, privadas, comunidades indígenas y afromexicanas, con el objeto de propiciar el desarrollo integral y asegurar la protección y preservación del medio ambiente, de los ecosistemas y biodiversidad, así mismo crear viveros municipales o en su defecto, bancos de semillas comunitarios.
