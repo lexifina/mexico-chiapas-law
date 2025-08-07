@@ -1,0 +1,20 @@
+(ADICIONADO, P.O. 6 DE AGOSTO DE 2025)
+Artículo 73 Bis.- La Contraloría Interna, para el cumplimiento de sus atribuciones establecidas en esta Ley, contará en función de la suficiencia presupuestal del Congreso del Estado con las áreas operativas, cuyas descripciones y funciones se detallan a continuación:
+a).- Área de Investigación de Quejas y Denuncias: Encargada de recibir, analizar y dar seguimiento a las quejas y denuncias relacionadas con presuntas faltas administrativas cometidas por servidores públicos del Congreso del Estado o particulares vinculados jurídicamente con el Poder Legislativo, así como de la recepción y sustanciación de los procedimientos en materia de Transparencia, Acceso a la Información Pública y Protección de Datos Personales en Posesión de Sujetos Obligados que determine la Ley de correspondiente.
+Para garantizar los hechos denunciados, esta área contará de manera enunciativa y no limitativa con las siguientes atribuciones:
+1.- Recepcionar y registrar quejas y denuncias presentadas contra personas servidoras públicas del Congreso del Estado de Chiapas, así como contra particulares que mantengan relación jurídica con el Poder Legislativo.
+2.- Analizar las quejas y denuncias recibidas para determinar su procedencia y viabilidad.
+3.- Investigar los hechos objeto de las quejas o denuncias, recabando pruebas y documentación necesaria para establecer si existen indicios de faltas administrativas.
+4.- Integrar expedientes de investigación con los datos probatorios recabados durante el procedimiento y elaborar el Informe de presunta responsabilidad administrativa correspondiente.
+5.- Remitir los expedientes concluidos a las instancias competentes para su resolución, asegurando el cumplimiento de las disposiciones aplicables.
+6.- Fungir como autoridad investigadora en términos de la Ley de Responsabilidades Administrativas para el Estado de Chiapas, realizando las actuaciones necesarias para la investigación de presuntas faltas administrativas, incluyendo la recopilación de pruebas, la integración de expedientes y la elaboración de informes técnicos que sirvan de base para la determinación de responsabilidades por parte de las autoridades competentes.
+7.- Las demás funciones que le sean asignadas por la Contraloría Interna para garantizar el cumplimiento de lo dispuesto en la presente Ley, la Ley de Responsabilidades Administrativas del Estado de Chiapas y otras disposiciones aplicables.
+b).- Área de Control y Evaluación: Encargada de coordinar la ejecución del Programa Anual de Evaluación del Congreso del Estado. Esta área busca fortalecer la eficiencia administrativa y la transparencia en la gestión interna del Congreso mediante evaluaciones periódicas y la implementación de estrategias de mejora, teniendo las atribuciones siguientes de manera enunciativa, más no limitativa:
+1.- Diseñar e implementar el Programa Anual de Evaluación del Congreso del Estado, asegurando que se alinee con los objetivos institucionales y las mejores prácticas de gestión pública.
+2.- Realizar evaluaciones periódicas de los procesos internos y administrativos del Congreso, identificando áreas de oportunidad y proponiendo mejoras específicas.
+3.- Generar informes trimestrales que reflejen el estado que guarda la gestión interna del Congreso, incluyendo observaciones, recomendaciones y acciones correctivas.
+4.- Proponer estrategias de mejora basadas en los resultados de las evaluaciones realizadas, promoviendo la eficiencia, transparencia y rendición de cuentas en el ejercicio de las funciones legislativas.
+5.- Supervisar y coordinar los procesos de entrega-recepción de las personas servidoras públicas del Congreso, garantizando el cumplimiento de las disposiciones normativas aplicables y la integridad de la documentación entregada.
+6.- Las demás funciones que le sean asignadas por la Contraloría Interna para garantizar el cumplimiento de lo dispuesto en la presente Ley y otras disposiciones aplicables.
+Capítulo Noveno
+De la Unidad de Transparencia
