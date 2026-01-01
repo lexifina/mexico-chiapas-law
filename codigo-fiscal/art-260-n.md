@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 9 DE DICIEMBRE DE 2025)
+Artículo 260 N.- Son sujetos de este impuesto las personas físicas y morales, así como las unidades económicas sean o no residentes en el Estado, generadoras del residuo y que por sí mismas o a través de intermediarios depositen o almacenen residuos en vertederos públicos o privados, que, al originar su liberación en el ambiente, sean un constituyente tóxico o peligroso que suscita efectos de riesgo en la salud humana, a los ecosistemas o al equilibrio ecológico.

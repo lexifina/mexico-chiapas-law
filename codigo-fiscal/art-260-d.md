@@ -1,1 +1,2 @@
-Artículo 260 D.- (DEROGADO, P.O. 26 DE ENERO DE 2022)
+(ADICIONADO, P.O. 9 DE DICIEMBRE DE 2025)
+Artículo 260 D.- El pago de este impuesto deberá efectuarse mediante declaración bimestral, a más tardar el día 17 del mes siguiente al que corresponda dicha declaración, que deberá presentarse en las formas y medios autorizados por la Secretaría.

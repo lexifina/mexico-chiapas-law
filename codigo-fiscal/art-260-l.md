@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 9 DE DICIEMBRE DE 2025)
+Artículo 260 L.- Es objeto de este impuesto el depósito o el almacenamiento de residuos en vertederos públicos o privados, situados en el Estado, que al originar su liberación en el ambiente, sean un constituyente tóxico o peligroso, que suscita efectos de riesgo en la salud humana, a los ecosistemas o al equilibrio ecológico.
+Para identificar que el residuo genera los efectos establecidos en el párrafo anterior, se tomará como base la información de alguna de las Normas Oficiales Mexicanas siguientes, según sea la actividad que desarrollan los sujetos obligados:

@@ -1,1 +1,2 @@
-Artículo 260 F.- (DEROGADO, P.O. 26 DE ENERO DE 2022)
+(ADICIONADO, P.O. 9 DE DICIEMBRE DE 2025)
+Artículo 260 F.- Es objeto de este impuesto la emisión de sustancias contaminantes, que se depositen, desechen o descarguen al suelo, subsuelo o agua en el territorio del Estado.

@@ -1,1 +1,3 @@
-Artículo 260 A.- (DEROGADO, P.O. 26 DE ENERO DE 2022)
+(ADICIONADO, P.O. 9 DE DICIEMBRE DE 2025)
+Artículo 260 A.- Son sujetos del pago de este impuesto las personas físicas y morales o unidades económicas que dentro del territorio del Estado realicen la extracción, explotación o aprovechamiento de los materiales pétreos a que se refiere el artículo anterior.
+La Federación, el Estado y los Municipios, los organismos descentralizados federales, estatales y municipales, las empresas de participación estatal mayoritaria de carácter federal y estatal, las empresas de participación municipal mayoritaria, los fideicomisos constituidos por dependencias y entidades de la administración pública federal, por el Estado y por los Municipios, así como las personas de derecho público con autonomía derivada de la Constitución Federal o del Estado, deberán cubrir el impuesto a su cargo.
