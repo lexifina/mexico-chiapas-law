@@ -1,4 +1,5 @@
-Artículo 47 Bis.- Por los servicios que presta la Dirección de Infraestructura Tecnológica, se causarán y pagarán, por cada uno, los siguientes derechos:
+(REFORMADO PRIMER PÁRRAFO, P.O. 10 DE DICIEMBRE DE 2025)
+Artículo 47 Bis.- Por los servicios que presta la Dirección de Infraestructura Tecnológica y Comunicaciones, se causarán y pagarán, por cada uno, los siguientes
 ServiciosTarifa
 I. Para el Uso de Servicios Digitales de Certificación y Encriptación por documento. $210.00
 II. Para el Uso de Infraestructura Tecnológica y Comunicaciones del Data Center Virtual, renta mensual incluye:
@@ -25,5 +26,6 @@ b) Servidores Virtuales con Acceso (sic) Internet/VPN, VLAN Pública 1, VLAN Loc
 2.5 4vcpu - 16GbRam 900GB HDD $6,244.00
 2.6 8vcpu - 16GbRam 1.0TB HDD $9,030.00
 2.7 8vcpu - 32GbRam 1.5TB HDD $12,501.00
-Capítulo XIII
-Derechos por los servicios que presta el Poder judicial del Estado
+(ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, P.O. 10 DE DICIEMBRE DE 2025)
+Capítulo XII Bis
+Derechos por los servicios que presta el Instituto Registral del Estado de Chiapas

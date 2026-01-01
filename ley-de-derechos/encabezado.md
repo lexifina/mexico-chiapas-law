@@ -1,3 +1,4 @@
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ORDENAMIENTO Y SUS DECRETOS DE MODIFICACIONES, SE SUGIERE CONSULTAR LOS ARTÍCULOS TRANSITORIOS CORRESPONDIENTES.]
 LEY DE DERECHOS DEL ESTADO DE CHIAPAS
 Ley publicada en el Número 5 del Periódico Oficial del Estado de Chiapas, el martes 31 de diciembre de 2024.
 Óscar Eduardo Ramírez Aguilar, Gobernador del Estado de Chiapas, a sus habitantes hace saber: Que la Honorable Sexagésima Novena Legislatura del mismo, se ha servido dirigir al Ejecutivo a su cargo el siguiente:
