@@ -3,3 +3,4 @@ El Ejecutivo del Estado, dispondrá se publique, circule y se dé el debido cump
 Dado en el Salón de Sesiones del H. Congreso del Estado Libre y Soberano de Chiapas, en la ciudad de Tuxtla Gutiérrez, Chiapas; a los 04 días del mes de marzo del año dos mil catorce.- D. P. C. Neftalí Armando del Toro Guzmán.- D. S. C. Hortencia Zuñiga Torres.- Rúbricas.
 De conformidad con la fracción I del artículo 44 de la Constitución Política local y para su observancia, promulgo el presente Decreto en la Residencia del Poder Ejecutivo del Estado, en la ciudad de Tuxtla Gutiérrez, Chiapas; a los cuatro días del mes de marzo del año dos mil catorce.
 Manuel Velasco Coello, Gobernador del Estado de Chiapas.- Óscar Eduardo Ramírez Aguilar, Secretario General de Gobierno.- Rúbricas.
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
