@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 6 DE MAYO DE 2026)
+Artículo 107 Vigésimo nonies. Las personas podrán incorporar una cláusula compromisoria en la que convengan que las controversias relativas al cumplimiento, interpretación o validez de sus contratos privados se resolverán mediante el procedimiento de Mediación Comunitaria previsto en esta Ley, siempre que no se contravengan disposiciones de orden público, derechos irrenunciables, ni versen sobre materias penal, fiscal o laboral, o hechos constitutivos de delito, sin perjuicio de su ejecución ante la autoridad jurisdiccional competente.

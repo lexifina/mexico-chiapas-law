@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 6 DE MAYO DE 2026)
+Artículo 107 Vigésimo tertius. Cuando se actualice alguno de los supuestos para dar por concluido un expediente se deberá levantar el documento correspondiente, será suscrito por las partes y la persona facilitadora del Juzgado respectivo que participe en el expediente. Si alguna o ambas partes se negaren a suscribir el documento de conclusión o ésta se levanta con motivo de la inasistencia de éstas, se deberá asentar tal circunstancia.

@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 6 DE MAYO DE 2026)
+Artículo 107 Terdecies. La persona facilitadora del Juzgado respectivo analizará el planteamiento de la controversia, y de ser procedente, admitirá la petición, en el caso que se advierta que el asunto no es susceptible de ventilarse a través del procedimiento de Mediación Comunitaria; se notificará esta determinación a la persona solicitante con la asesoría o en su caso la orientación correspondiente, asignándole el número de asesoría.

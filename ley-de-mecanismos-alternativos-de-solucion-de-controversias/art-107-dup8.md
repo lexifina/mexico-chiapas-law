@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 6 DE MAYO DE 2026)
+Artículo 107 Vigésimo quater. El Juzgado respectivo está obligado a expedir copia simple o certificada de los documentos que obren en el expediente, así como entregar un ejemplar original del convenio de mediación comunitaria a las partes con el cual se haya puesto fin a la controversia, siempre que no se trate de información confidencial, bastando con que lo soliciten verbalmente y dejen constancia de su recepción.

@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 6 DE MAYO DE 2026)
+Artículo 107 Vigésimo primus. La persona facilitadora del Juzgado respectivo deberá hacer constar en el Convenio los acuerdos al momento de poner fin a la controversia. Una vez elaborado el documento se dará lectura en español o la lengua materna que corresponda; las partes lo suscribirán siempre y cuando éste se apegue a lo previsto a la presente Ley y otros ordenamientos aplicables, no contravengan disposiciones de orden público, ni se afecte derechos de terceros.

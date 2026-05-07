@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 6 DE MAYO DE 2026)
+Artículo 107 Quaterdecies. Admitido el asunto, la persona facilitadora del Juzgado respectivo asignará el número de solicitud a la petición, hará de conocimiento a la persona solicitante y procederá a invitar a la otra parte involucrada de la fecha y hora para celebrar la sesión de orientación, en la que explicará a las partes la naturaleza y fines de la Mediación Comunitaria.
+La sesión de orientación deberá llevarse a cabo en un tiempo que no exceda de los tres días hábiles contados a partir de que sea admitido el asunto; podrá ampliarse siempre y cuando exista razón justificada.

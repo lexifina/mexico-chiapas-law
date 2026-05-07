@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 6 DE MAYO DE 2026)
+Artículo 107 Undecies. Cuando una o ambas partes comparezcan, la persona facilitadora del Juzgado respectivo deberá explicar y orientar en qué consiste el procedimiento de Mediación Comunitaria; hacerle de su conocimiento los derechos y deberes que la presente Ley establece. En este caso, se levantará la comparecencia con los datos previstos en el artículo anterior.

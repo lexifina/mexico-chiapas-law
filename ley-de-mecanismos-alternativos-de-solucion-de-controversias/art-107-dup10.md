@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 6 DE MAYO DE 2026)
+Artículo 107 Vigésimo sexies. En materia familiar las controversias que involucren derechos de niñas, niños, adolescentes, mujeres o personas susceptibles de encontrarse en alguna situación de vulnerabilidad, la persona facilitadora del Juzgado respectivo dará vista a las instituciones públicas que tengan la obligación de velar y proteger sus derechos.
+Si durante algún trámite o procedimiento de Mediación Comunitaria, participan personas adultas mayores, personas con discapacidad o personas pertenecientes a grupos en situación de vulnerabilidad, se estará a lo dispuesto por el artículo 45 de esta Ley.
