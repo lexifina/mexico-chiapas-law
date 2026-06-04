@@ -1,0 +1,9 @@
+P.O. 3 DE JUNIO DE 2026.
+[N. DE E. TRANSITORIOS DEL "DECRETO NO. 254 POR EL QUE SE REFORMAN, ADICIONAN Y DEROGAN DIVERSAS DISPOSICIONES DE LA LEY DE TURISMO DEL ESTADO DE CHIAPAS".]
+Artículo Primero. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial.
+Artículo Segundo. La persona titular de la Secretaría de Turismo, en un plazo no mayor a noventa días naturales contados a partir de la entrada en vigor del presente Decreto, deberá someter a la consideración del Titular del Poder Ejecutivo del Estado, la modificación del Reglamento para efectos de su expedición y publicación correspondiente, a fin de armonizar su contenido con las disposiciones establecidas en este Decreto.
+Artículo Tercero. Mientras se expide y entra en vigor el Reglamento reformado, el Consejo se regirá por las disposiciones vigentes en el Reglamento actual de la Ley de Turismo para el Estado de Chiapas, en lo que no contravenga al presente Decreto.
+Artículo Cuarto. Las y los integrantes del Consejo previstos en este Decreto deberán ser formalmente convocados por la Secretaría de Turismo en un plazo no mayor a ciento veinte días naturales posteriores a la publicación del presente Decreto, a fin de instalarse conforme a la nueva estructura legal.
+Artículo Quinto. Las y los integrantes del Consejo en un plazo de noventa días naturales posteriores a su instalación deberá proponer al Titular del Poder Ejecutivo del Estado en los términos previstos en el presente Decreto, la Marca Destino oficial del Estado de Chiapas.
+Artículo Sexto. Las disposiciones reglamentarias que emita la Secretaría de Turismo deberán considerar los principios de participación multisectorial, equidad de género, inclusión de pueblos originarios, transparencia y rendición de cuentas, conforme a lo establecido en esta Ley.
+Artículo Séptimo. Se derogan todas las disposiciones de igual o menor jerarquía que se opongan al presente Decreto.
