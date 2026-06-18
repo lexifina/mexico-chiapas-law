@@ -1,5 +1,4 @@
 LEY DE TRANSPARENCIA Y ACCESO A LA INFORMACIÓN PÚBLICA DEL ESTADO DE CHIAPAS
-[N. DE E. CONTIENE LA FE DE ERRATAS PUBLICADA EN EL PERIÓDICO OFICIAL DEL 25 DE JUNIO DE 2025.]
 Ley publicada en el Número 45 del Periódico Oficial del Estado de Chiapas, el miércoles 18 de junio de 2025.
 Óscar Eduardo Ramírez Aguilar, Gobernador del Estado de Chiapas, a sus habitantes hace saber: Que la Honorable Sexagésima Novena Legislatura del mismo, se ha servido dirigir al Ejecutivo a su cargo el siguiente:
 DECRETO NÚMERO 276
