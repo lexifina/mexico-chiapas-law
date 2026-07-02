@@ -1,0 +1,6 @@
+P.O. 1 DE JULIO DE 2026.
+[N. DE E. TRANSITORIOS DEL "DECRETO NO. 270 POR EL QUE SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES AL CÓDIGO CIVIL PARA EL ESTADO DE CHIAPAS, EN MATERIA DE RECONOCIMIENTO DE IDENTIDAD DE GÉNERO".]
+Artículo Primero.- El presente Decreto entrará en vigor, al día siguiente de su publicación en el Periódico Oficial.
+Artículo Segundo.- Se derogan todas las disposiciones que se opongan al presente Decreto.
+Artículo Tercero.- La persona titular del Poder Ejecutivo del Estado, por conducto de la Dirección del Registro Civil, deberá realizar las adecuaciones al Reglamento del Registro Civil del Estado de Chiapas, formatos, sistemas y demás disposiciones administrativas necesarias para la implementación del presente Decreto, en un plazo no mayor a noventa días naturales contados a partir de (sic) entrada en vigor del presente Decreto.
+Artículo Cuarto.- La Dirección del Registro Civil deberá capacitar al personal adscrito a la Dirección, Archivo Estatal y Oficialías del Registro Civil, a efecto de garantizar que el procedimiento de reconocimiento de identidad de género y cambio de nombre se realice bajo los principios de confidencialidad, accesibilidad, trato digno, no discriminación, seguridad jurídica, protección de datos personales y respeto al libre desarrollo de la personalidad.
