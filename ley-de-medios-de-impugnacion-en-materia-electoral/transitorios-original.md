@@ -6,3 +6,4 @@ Artículo Cuarto.- El Consejo General del Instituto de Elecciones y Participaci�
 El Ejecutivo del Estado dispondrá se publique, circule y se dé el debido cumplimiento al presente Decreto.
 Dado en el Honorable Congreso del Estado Libre y Soberano de Chiapas, en la Ciudad de Tuxtla Gutiérrez, Chiapas, a los 26 días del mes de junio del año dos mil veinte - D. P. C. ROSA ELIZABETH BONILLA HIDALGO. - D. S. C. SILVIA TORREBLANCA ALFARO.
 De conformidad con la fracción I del artículo 59 de la Constitución Política Local y para su observancia, promulgo el presente Decreto en la Residencia del Poder Ejecutivo del Estado, en la Ciudad de Tuxtla Gutiérrez, Chiapas; a los 29 días del mes de junio del año dos mil veinte. - Rutilio Escandón Cadenas, Gobernador del Estado de Chiapas. - Ismael Brito Mazariegos, Secretario General de Gobierno. - Rúbricas.
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
