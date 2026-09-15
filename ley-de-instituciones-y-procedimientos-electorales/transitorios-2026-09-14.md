@@ -1,0 +1,8 @@
+P.O. 14 DE SEPTIEMBRE DE 2026.
+[N. DE E. TRANSITORIOS DEL "DECRETO NO. 307 POR EL QUE SE REFORMAN LOS NUMERALES 1 Y 2 DEL ARTÍCULO 25 DE LA LEY DE INSTITUCIONES Y PROCEDIMIENTOS ELECTORALES DEL ESTADO DE CHIAPAS".]
+Artículo Primero. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial.
+Artículo Segundo. Para el proceso electoral local ordinario inmediato a la entrada en vigor del presente Decreto, el Congreso del Estado, a través de la Junta de Coordinación Política, para garantizar la paridad horizontal, hará bloques de municipios necesarios conforme a la lista nominal de electores con corte previo a la publicación del presente Decreto, debiendo para ello observar la normativa aplicable, así como los criterios, jurisprudencias, acuerdos y reglamentos que correspondan.
+Una vez integrados los bloques a que hace referencia el párrafo anterior, mediante insaculación el Congreso del Estado, a través de la Junta de Coordinación Política, establecerá el género que corresponda a cada municipio.
+El resultado de este procedimiento deberá comunicarse al Consejo General del Instituto de Elecciones y Participación Ciudadana del Estado, para los efectos correspondientes a más tardar el día 30 de septiembre del presente año.
+Por única ocasión, en aquellos municipios donde no corresponda el género femenino, los partidos políticos, coaliciones y candidaturas comunes podrán postular libremente el género que deberá encabezar la planilla correspondiente.
+Artículo Tercero. Se derogan todas las disposiciones que se opongan a lo dispuesto en el presente Decreto.
