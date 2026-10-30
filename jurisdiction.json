@@ -1,0 +1,11 @@
+{
+  "path": "mx-chp",
+  "code": "MX-CHP",
+  "name": "Chiapas",
+  "level": "state",
+  "parent": "mx",
+  "repo": "https://github.com/lexifina/mexico-chiapas-law",
+  "build": "built: constitution, codes and laws (86 ordenamientos, 650 versions) from SCJN Legislación",
+  "language": "es",
+  "sources": 1
+}
